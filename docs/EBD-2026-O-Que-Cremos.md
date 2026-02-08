@@ -218,6 +218,72 @@ Mas significa que:
 
 Jesus mesmo confirmou a confiabilidade das Escrituras: *"A Escritura não pode ser anulada"* (João 10:35).
 
+#### 8. SOMENTE A ESCRITURA - NOSSA ÚNICA AUTORIDADE
+
+**POSIÇÃO BATISTA: SOLA SCRIPTURA**
+
+Como batistas, cremos firmemente no princípio de **Sola Scriptura** (Somente a Escritura). Isso significa que:
+
+**A BÍBLIA É NOSSA ÚNICA REGRA DE FÉ E PRÁTICA**
+
+**Não seguimos:**
+- Tradições da igreja como autoridade igual à Escritura
+- Credos ou confissões de fé como autoritativos (embora possam ser úteis para resumir ensinos bíblicos)
+- Concílios eclesiásticos ou pronunciamentos papais
+- Revelações ou profecias modernas que adicionem à Escritura
+
+**Seguimos SOMENTE:**
+- A Bíblia Sagrada como nossa autoridade final e suficiente
+
+2 Timóteo 3:16-17: *"Toda a Escritura é inspirada por Deus e útil para o ensino, para a repreensão, para a correção e para a instrução na justiça, para que o homem de Deus seja apto e **plenamente preparado** para toda boa obra."*
+
+A Escritura é **suficiente** - nos deixa "plenamente preparados"!
+
+**Por que somente a Escritura?**
+
+**1. A Bíblia reivindica autoridade final:**
+- Isaías 8:20: *"À lei e ao testemunho! Se eles não falarem segundo esta palavra, não haverá neles luz da alva."*
+- Gálatas 1:8: *"Mas ainda que nós ou um anjo dos céus pregue um evangelho diferente... seja amaldiçoado!"*
+
+**2. Tradições humanas podem errar:**
+- Marcos 7:8-9: Jesus repreendeu os fariseus por colocarem tradição acima da Palavra de Deus
+- Colossenses 2:8: *"Tenham cuidado para que ninguém os escravize a filosofias vãs e enganosas... e não segundo Cristo."*
+
+**3. O Espírito Santo trabalha através da Palavra:**
+- A Palavra é **viva e eficaz** (Hebreus 4:12)
+- O Espírito nos guia através da Escritura, não independente dela
+- João 16:13: *"O Espírito da verdade... vos guiará a toda a verdade"* - verdade já revelada na Palavra!
+
+**4. Competência da alma perante Deus:**
+- Cada pessoa pode ler e entender a Bíblia pelo Espírito Santo
+- Não precisamos de intermediário humano para interpretar a Escritura
+- 1 João 2:27: *"A unção que vocês receberam dele permanece em vocês, e vocês não precisam que alguém os ensine."*
+
+**IMPORTANTE - NÃO SOMOS CONFESSIONAIS:**
+
+Embora respeite mosos cristãos reformados que seguem confissões históricas (Westminster, 1689, etc.), **como batistas não somos confessionais**. Isso significa:
+
+- **Não aderimos formalmente a credos** ou confissões como autoridade
+- **Usamos confissões como ferramentas** educacionais, não como documentos autoritativos
+- **Testamos tudo pela Escritura**, não por tradição teológica
+- **Nossa única confissão autoritativa é a Bíblia**
+
+Isso não significa que rejeitamos toda teologia sistemática ou que "cada um interpreta como quer". Significa que:
+- **A Bíblia julga toda teologia**, não o contrário
+- **Aprendemos com a história da igreja**, mas a Escritura tem a palavra final
+- **Quando sistemas teológicos divergem, voltamos à Bíblia**
+
+**APLICAÇÃO PRÁTICA:**
+
+Quando você estuda doutrina:
+1. **Comece com a Bíblia**, não com sistemas teológicos
+2. **Compare tudo com a Escritura** - seja o que for (este material incluído!)
+3. **O Espírito Santo te guia através da Palavra**, não independente dela
+4. **Nenhuma tradição, por mais antiga, substitui a autoridade da Bíblia**
+5. **Seja como os bereanos:** Atos 17:11 - *"Examinavam as Escrituras todos os dias para ver se tudo era assim mesmo."*
+
+**"Santifica-os na verdade; a tua palavra é a verdade."** (João 17:17)
+
 ---
 
 ### POR QUE ISSO É IMPORTANTE PARA MINHA VIDA?
@@ -3075,24 +3141,98 @@ Romanos 12:3: *"Não pensem de si mesmos além do que convém."*
 
 Há diferentes entendimentos entre cristãos sinceros sobre alguns dons:
 
-**Visão Cessacionista:**
-- Alguns dons (especialmente os "sinais" como línguas, profecias, milagres) cessaram após a era apostólica
-- Esses dons serviram para autenticar os apóstolos e estabelecer a igreja primitiva
-- Hoje temos a Bíblia completa, então não precisamos desses dons
+**POSIÇÃO BATISTA TRADICIONAL: CESSACIONISMO MODERADO**
+
+A maioria dos batistas tradicionais crê em **cessacionismo moderado** (também chamado cessacionismo parcial). Isso significa:
+
+**DONS QUE CESSARAM (Dons de Sinal):**
+- **Apostolado** (no sentido restrito - Doze + Paulo)
+- **Profecias revelatórias** (que adicionavam à Escritura)
+- **Línguas** como sinal aos judeus (1 Coríntios 14:21-22)
+- **Milagres apostólicos** de autenticação (2 Coríntios 12:12)
+
+**Por quê cessaram?**
+
+**1. Cânon fechado:** Apocalipse 22:18-19 - Não podemos adicionar à Escritura. Profecias revelatórias não são mais necessárias.
+
+**2. Fundamento estabelecido:** Efésios 2:20 - A igreja foi edificada sobre o **fundamento** dos apóstolos e profetas. Fundamento se coloca uma vez!
+
+**3. Propósito cumprido:** Hebreus 2:3-4 - Sinais e prodígios **confirmaram** a mensagem apostólica. Hoje temos a Palavra completa.
+
+**4. Exemplo histórico:** Os dons de sinal foram predominantemente da era apostólica. A história da igreja mostra declínio após os apóstolos.
+
+**DONS QUE CONTINUAM (Dons de Serviço):**
+- **Ensino** (Romanos 12:7)
+- **Liderança/Pastor** (Efésios 4:11)
+- **Serviço/Diácono** (Romanos 12:7)
+- **Exortação** (Romanos 12:8)
+- **Contribuição/Generosidade** (Romanos 12:8)
+- **Misericórdia** (Romanos 12:8)
+- **Evangelista** (Efésios 4:11)
+- **Sabedoria e conhecimento** (aplicados, não revelatórios)
+
+**Por quê continuam?**
+Esses dons edificam e servem a igreja em todas as épocas. São necessários até Cristo voltar!
+
+---
+
+**VISÃO ALTERNATIVA: CONTINUÍSMO**
+
+Por respeito, apresentamos a visão continuísta:
 
 **Visão Continuísta:**
 - Todos os dons continuam disponíveis hoje
-- Nenhuma passagem bíblica afirma claramente que os dons cessaram
+- Nenhuma passagem bíblica afirma explicitamente que os dons cessaram
 - A igreja ainda precisa de todas as manifestações do Espírito
 - Devemos buscar os dons, mas com ordem e sob a autoridade das Escrituras
+- 1 Coríntios 13:8-10 refere-se à vinda de Cristo, não ao fechamento do cânon
 
-**O que ambos concordam:**
-- Todos os dons devem glorificar a Cristo
-- A Palavra de Deus é a autoridade final (nenhuma "profecia" pode contradizê-la)
-- Os dons devem edificar, não causar divisão
-- Precisamos do Espírito Santo capacitando a igreja hoje
+---
 
-**Importante:** Esta não deve ser uma questão de divisão! Cristãos sinceros discordam respeitosamente sobre isso.
+**PRINCÍPIOS EM QUE TODOS CONCORDAM:**
+
+Seja qual for sua posição, todos os cristãos fiéis concordam:
+
+**1. A Escritura é autoridade final:** Nenhuma "profecia" moderna pode contradizer ou adicionar à Bíblia
+
+**2. O cânon está fechado:** Apocalipse 22:18-19 - Não aceitamos novas revelações iguais à Escritura
+
+**3. Ordem e decência:** 1 Coríntios 14:40 - Tudo deve ser feito com ordem, não caos
+
+**4. Edificação, não exibição:** 1 Coríntios 14:12 - Dons são para edificar, não para autopromoção
+
+**5. Tudo deve glorificar a Cristo:** Não o Espírito Santo separado de Cristo, nem experiências em si mesmas
+
+**6. Cuidado com falsificações:** Nem toda manifestação sobrenatural vem de Deus (1 João 4:1)
+
+**7. Cautela com experiências subjetivas:** Testamos tudo pela Palavra objetiva de Deus
+
+**8. O Espírito capacita a igreja hoje:** Precisamos do poder do Espírito Santo em nossa geração!
+
+---
+
+**APLICAÇÃO PRÁTICA DA POSIÇÃO BATISTA:**
+
+**1. Não buscamos novos "apóstolos"** com autoridade igual aos Doze
+
+**2. Não aceitamos "profecias"** que adicionem à Escritura ou tenham mesma autoridade que a Bíblia
+
+**3. Testamos tudo pela Palavra:** Atos 17:11 - Como os bereanos, examinamos tudo pelas Escrituras
+
+**4. Focamos nos dons de serviço:** Ensino, liderança, misericórdia, generosidade, evangelismo
+
+**5. Não somos anti-sobrenaturais:** Cremos em oração, cura (pela vontade de Deus), providência divina
+
+**6. Mantemos ordem no culto:** 1 Coríntios 14:40 - Cultos devem ser edificantes, ordeiros e centrados na Palavra
+
+**7. Dependemos do Espírito:** Não somos "cessacionistas práticos" que vivem como se o Espírito não existisse!
+
+---
+
+**IMPORTANTE:** Esta não deve ser uma questão de divisão primária! Cristãos sinceros discordam respeitosamente sobre isso. A posição batista tradicional tende ao cessacionismo moderado, mas respeitamos irmãos que pensam diferente, desde que:
+- Mantenham a autoridade final da Escritura
+- Não aceitem revelações que contradigam a Bíblia
+- Busquem ordem e edificação
 
 ---
 
@@ -3407,7 +3547,19 @@ A salvação tem três aspectos temporais:
 
 Na história da igreja, surgiram dois sistemas teológicos principais para explicar como a salvação funciona: **Calvinismo** (ou teologia reformada) e **Arminianismo**.
 
-**IMPORTANTE:** Ambos são cristãos sinceros que amam a Jesus e creem na Bíblia! As diferenças são sobre **como** Deus salva, não sobre **quem** salva (somente Cristo!). Podemos discordar com amor e respeito!
+**OBSERVAÇÃO IMPORTANTE - POSIÇÃO BATISTA:**
+
+Apresentamos esses dois sistemas teológicos para que você os conheça e compreenda as diferentes perspectivas cristãs sobre a salvação. **No entanto, como batistas, nossa autoridade final é sempre a Escritura, não sistemas teológicos**.
+
+- Não aderimos rigidamente a nenhum sistema como se fosse infalível
+- Testamos todo ensino pela Palavra de Deus
+- Onde a Bíblia fala claramente, falamos com confiança
+- Onde há mistério, mantemos humildade
+- **Nossa lealdade é à Escritura, não a rótulos teológicos**
+
+Dito isso, os batistas tradicionais geralmente se alinham mais com a posição reformada em soteriologia (doutrina da salvação), especialmente em pontos como depravação total, segurança eterna e soberania de Deus. Mas sempre com a Escritura como juiz final!
+
+**IMPORTANTE:** Ambos (calvinistas e arminianos) são cristãos sinceros que amam a Jesus e creem na Bíblia! As diferenças são sobre **como** Deus salva, não sobre **quem** salva (somente Cristo!). Podemos discordar com amor e respeito!
 
 #### COMPARAÇÃO DOS CINCO PONTOS
 
@@ -3946,24 +4098,134 @@ Na glorificação, você será **totalmente** santo, sem pecado!
 
 Filipenses 1:6: *"Estou plenamente certo de que aquele que começou boa obra em vocês vai completá-la até o dia de Cristo Jesus."*
 
-**DUAS PERSPECTIVAS:**
+**POSIÇÃO BATISTA TRADICIONAL: SEGURANÇA ETERNA**
 
-**Visão Reformada - "Preservados por Deus":**
-- Ênfase: Deus **guarda** os Seus
-- João 10:28-29: *"Ninguém as pode arrebatar da minha mão"*
-- Deus garante que os verdadeiramente salvos perseverarão
-- Se alguém "cai", nunca foi verdadeiramente salvo (1 João 2:19)
+Como batistas, cremos na **segurança eterna do crente genuíno**. Aquele que foi verdadeiramente salvo por Cristo **não pode perder sua salvação**. Esta é uma das doutrinas mais preciosas da fé cristã!
 
-**Visão Arminiana - "Responsabilidade de Perseverar":**
-- Ênfase: Devemos **perseverar** na fé
-- Avisos bíblicos contra apostasia são reais (Hebreus 6:4-6)
-- Alguns creem que é possível perder a salvação; outros não
-- Devemos permanecer vigilantes e fiéis
+**FUNDAMENTOS BÍBLICOS DA SEGURANÇA ETERNA:**
 
-**AMBOS CONCORDAM:**
-- Verdadeiros crentes produzirão fruto (Mateus 7:16-20)
-- Devemos nos esforçar na fé (2 Pedro 1:10)
-- Deus é fiel para nos guardar (Judas 24)
+**A. PROMESSAS CLARAS DE CRISTO**
+
+João 10:28-29: *"Eu lhes dou a vida eterna, e elas jamais perecerão; ninguém as poderá arrebatar da minha mão. Meu Pai, que as deu para mim, é maior que todos; ninguém as pode arrebatar da mão de meu Pai."*
+
+- Jesus dá vida **eterna** (não temporária!)
+- Elas **jamais perecerão** (sem exceções!)
+- **Ninguém** pode arrebatar (nem você mesmo!)
+
+João 6:37,39: *"Todo aquele que o Pai me der virá a mim... esta é a vontade daquele que me enviou: que eu não perca nenhum dos que ele me deu."*
+
+Jesus promete **não perder nenhum** dos que o Pai lhe deu!
+
+**B. SELADOS PELO ESPÍRITO SANTO**
+
+Efésios 1:13-14: *"Tendo nele também crido, fostes selados com o Santo Espírito da promessa; o qual é o penhor da nossa herança."*
+
+Efésios 4:30: *"Não entristeçam o Espírito Santo de Deus, com o qual vocês foram selados para o dia da redenção."*
+
+Um selo indica:
+- **Propriedade:** Você pertence a Deus
+- **Segurança:** Protegido até o fim
+- **Garantia:** O Espírito é "penhor" (garantia) da salvação completa
+
+**C. NADA PODE NOS SEPARAR**
+
+Romanos 8:38-39: *"Pois estou convencido de que nem morte nem vida, nem anjos nem demônios, nem o presente nem o futuro, nem quaisquer poderes, nem altura nem profundidade, nem qualquer outra coisa na criação será capaz de nos separar do amor de Deus que está em Cristo Jesus, nosso Senhor."*
+
+Note: **"Nem qualquer outra coisa"** - isso inclui você mesmo! A salvação não depende de você mantê-la!
+
+**D. DEUS COMPLETA A OBRA**
+
+Filipenses 1:6: *"Aquele que começou boa obra em vocês vai completá-la até o dia de Cristo Jesus."*
+
+Deus **garante** completar o que começou! Ele não abandona Sua obra pela metade!
+
+**E. NÃO HÁ CONDENAÇÃO**
+
+Romanos 8:1: *"Portanto, agora já não há condenação para os que estão em Cristo Jesus."*
+
+Romanos 8:33-34: *"Quem fará alguma acusação contra os escolhidos de Deus? É Deus quem os justifica. Quem os condenará? Foi Cristo Jesus que morreu; e mais, que ressuscitou e está à direita de Deus, e também intercede por nós."*
+
+Se Deus justificou e Cristo intercede, quem pode condenar?
+
+---
+
+**MAS E AS ADVERTÊNCIAS CONTRA APOSTASIA?**
+
+A Bíblia contém advertências sérias (Hebreus 6:4-6; 10:26-29). Como entendê-las?
+
+**RESPOSTA BATISTA:**
+
+**1. Professos vs. Possuidores**
+
+1 João 2:19: *"Eles saíram do nosso meio, mas na realidade não eram dos nossos, pois, se fossem dos nossos, teriam permanecido conosco; o fato de terem saído mostra que nenhum deles era dos nossos."*
+
+Quem "cai" e abandona totalmente a fé **nunca foi verdadeiramente salvo**! Eram professos, não possuidores.
+
+**2. Advertências são Meios de Perseverança**
+
+As advertências bíblicas são **instrumentos** que Deus usa para manter Seus eleitos no caminho! Elas não provam que podemos perder a salvação, mas são meios pelos quais Deus nos preserva.
+
+**3. Falsa Segurança vs. Verdadeira Segurança**
+
+Mateus 7:21-23: *"Nem todo aquele que me diz: 'Senhor, Senhor', entrará no Reino dos céus... Então lhes direi claramente: Nunca os conheci. Afastem-se de mim vocês, que praticam o mal!"*
+
+Há pessoas com **falsa segurança** - pensam que são salvas, mas nunca foram. Jesus diz: "**Nunca** os conheci" (não "conheci mas perderam").
+
+**4. Verdadeiros Crentes Produzem Fruto**
+
+Mateus 7:16-20: *"Pelos seus frutos vocês os reconhecerão."*
+
+João 15:2,5: Ramos genuínos na videira **produzem fruto**. Se não há fruto, nunca houve vida real!
+
+---
+
+**VISÃO ALTERNATIVA (ARMINIANA)**
+
+Embora alguns cristãos sinceros discordem, apresentamos sua visão por respeito:
+
+**Visão Arminiana - "Possibilidade de Perder a Salvação":**
+- Alguns arminianos creem que é possível um crente verdadeiro **perder** a salvação por apostasia deliberada
+- Enfatizam avisos bíblicos contra apostasia como reais para crentes genuínos
+- Enfatizam responsabilidade humana de **perseverar** na fé
+- (Nota: Outros arminianos também creem em segurança eterna)
+
+**Textos enfatizados:** Hebreus 6:4-6; 10:26-29
+
+**Resposta batista:** Esses textos referem-se a professos falsos ou são advertências que Deus usa para guardar os verdadeiros crentes. A posição batista tradicional é a **segurança eterna**.
+
+---
+
+**O QUE AMBOS CONCORDAM:**
+
+Independente da posição teológica, **todos** concordam que:
+
+- **Verdadeiros crentes produzirão fruto** (Mateus 7:16-20)
+- **Devemos nos esforçar na fé** (2 Pedro 1:10)
+- **Deus é fiel para nos guardar** (Judas 24)
+- **Devemos perseverar** até o fim (não como causa, mas como evidência de salvação real)
+- **Não devemos presumir** da graça de Deus para viver em pecado deliberado
+
+---
+
+**APLICAÇÃO PRÁTICA:**
+
+**1. Segurança, não presunção:** A segurança eterna não é licença para pecar! Romanos 6:1-2: *"Que diremos então? Continuaremos pecando para que a graça aumente? De maneira nenhuma!"*
+
+**2. Exame próprio:** 2 Coríntios 13:5: *"Examinem-se para ver se vocês estão na fé."* Há fruto em sua vida? Amor a Deus? Desejo de obedecê-Lo?
+
+**3. Conforto nas lutas:** Quando você tropeça, não significa que perdeu a salvação! Deus está trabalhando em você (Filipenses 2:13).
+
+**4. Certeza inabalável:** Sua salvação não depende de você ser forte - depende de Cristo, que é Todo-Poderoso! (Judas 24)
+
+---
+
+**CONCLUSÃO:**
+
+Como batistas, descansamos na maravilhosa verdade da **segurança eterna**. Uma vez genuinamente salvos por Cristo, somos guardados pelo poder de Deus até a redenção final! 
+
+Isso não nos torna complacentes, mas gratos! Não presumimos da graça, mas a celebramos! Não relaxamos na santidade, mas buscamos agradar Aquele que nos salvou tão completamente!
+
+**"Estou convencido de que aquele que começou boa obra em vocês vai completá-la até o dia de Cristo Jesus!"** (Filipenses 1:6)
 
 ---
 
@@ -4623,6 +4885,19 @@ Características:
 - **Visível:** Pode ser vista e identificada
 - **Organizada:** Tem liderança, membros, estrutura
 - **Imperfeita:** Pode ter joio junto com trigo (Mateus 13:24-30)
+- **Autônoma:** Cada igreja local é independente e autogovernada sob Cristo
+
+**PRINCÍPIO BATISTA: AUTONOMIA DA IGREJA LOCAL**
+
+Como batistas, cremos firmemente na **autonomia da igreja local**. Isso significa:
+
+- Cada igreja local é **independente** e **autogovernada** sob a autoridade de Cristo
+- Não há hierarquia denominacional que controle ou governe a igreja local
+- Cada congregação é diretamente responsável perante Cristo, sua Cabeça
+- As igrejas podem cooperar voluntariamente (missões, etc.), mas sem perder autonomia
+- Nenhuma organização externa pode ditar doutrina ou prática à igreja local
+
+Isso não significa isolamento! Significa que **Cristo governa cada igreja diretamente**, não através de hierarquia humana.
 
 **AMBAS SÃO IMPORTANTES!**
 
@@ -4691,6 +4966,18 @@ A Igreja é o novo povo de Deus - cumprimento das promessas a Israel!
 **D. PERTENCEMOS A DEUS:** "Povo exclusivo de Deus" - Somos propriedade de Deus!
 
 **E. TEMOS MISSÃO:** "Para anunciar as grandezas" - Fomos salvos para testemunhar!
+
+**PRINCÍPIO BATISTA: MEMBRESIA REGENERADA**
+
+Como batistas, cremos no princípio da **membresia regenerada**. Isso significa que:
+
+- Somente pessoas **nascidas de novo** devem ser membros da igreja local
+- Membros devem fazer **profissão de fé** genuína em Cristo
+- Batismo precede membresia (crentes batizados)
+- Não há "membros nominais" ou "batizados na infância" - só crentes professos
+- Isso garante que decisões da igreja sejam tomadas por pessoas espirituais
+
+Claro, só Deus conhece os corações (podem haver professos falsos), mas buscamos uma igreja de crentes genuínos, não mistura de mundo e igreja.
 
 #### 2. O CORPO DE CRISTO
 
@@ -5140,15 +5427,98 @@ Cristãos sinceros discordam sobre como a igreja deve ser governada. Vejamos tr�
 
 **Argumento:** Sacerdócio de todos os crentes (1 Pedro 2:9), exemplos no NT de decisões congregacionais (Atos 6:3-5; 2 Coríntios 2:6)
 
+**ESTA É A FORMA TRADICIONAL BATISTA DE GOVERNO**
+
+Cremos que o governo congregacional reflete melhor o padrão do Novo Testamento pelos seguintes motivos:
+
+**A. SACERDÓCIO UNIVERSAL DOS CRENTES**
+
+1 Pedro 2:9: *"Vocês, porém, são geração eleita, sacerdócio real, nação santa, povo exclusivo de Deus."*
+
+Todos os crentes são sacerdotes diante de Deus! Não há hierarquia especial de clérigos. Isso implica que todos os membros regenerados têm responsabilidade nas decisões da igreja.
+
+**B. AUTONOMIA DA IGREJA LOCAL**
+
+Cada igreja local é autônoma (autogovernada) sob a autoridade de Cristo. Não há hierarquia denominacional que controle as igrejas locais. Cada congregação é diretamente responsável perante Cristo, sua Cabeça.
+
+**C. EXEMPLOS BÍBLICOS DE DECISÕES CONGREGACIONAIS**
+
+**Atos 6:1-6** - Escolha dos diáconos:
+*"Os Doze reuniram **toda a comunidade dos discípulos**... **Toda a comunidade** aprovou a proposta."*
+
+Note: Os apóstolos não escolheram sozinhos - convocaram **toda a congregação** para participar da decisão!
+
+**Atos 13:1-3** - Envio de missionários:
+A **igreja** de Antioquia (não apenas os líderes) enviou Paulo e Barnabé.
+
+**Atos 15:22** - Decisão sobre a circuncisão:
+*"Então os apóstolos e os presbíteros, **com toda a igreja**, decidiram..."*
+
+Decisões importantes envolviam **toda a igreja**, não apenas líderes!
+
+**2 Coríntios 2:6** - Disciplina eclesiástica:
+*"A punição que lhe foi imposta **pela maioria** é suficiente."*
+
+A disciplina foi aplicada pela **maioria** da congregação - decisão congregacional!
+
+**Mateus 18:17** - Processo de disciplina:
+*"Se ele se recusar a ouvi-los, conte à **igreja**."*
+
+Jesus não disse "conte aos líderes" ou "conte ao bispo". Disse: conte à **igreja** (congregação)!
+
+**D. PRINCÍPIOS BATISTAS FUNDAMENTAIS**
+
+**1. Separação Igreja-Estado:** Nenhum governo civil ou hierarquia eclesiástica deve controlar a igreja local. Só Cristo é o Cabeça!
+
+**2. Liberdade Religiosa:** Cada pessoa tem direito à liberdade de consciência perante Deus. A fé não pode ser imposta ou coagida pelo estado. Batistas historicamente lutaram pela liberdade religiosa para todos (não apenas para si mesmos).
+
+**3. Competência da Alma:** Cada pessoa é competente e responsável diante de Deus. Isso se reflete na participação dos membros nas decisões. Ninguém precisa de intermediário (padre, bispo, papa) entre si e Deus.
+
+**4. Membresia Regenerada:** Só crentes verdadeiros devem ser membros votantes, garantindo decisões espirituais.
+
+**E. COMO FUNCIONA O GOVERNO CONGREGACIONAL**
+
+Em uma igreja congregacional batista:
+
+- **Membros votam** em decisões importantes: chamada de pastores, disciplina, orçamento, compra de propriedades, etc.
+- **Pastores lideram** através do ensino e exemplo, mas **servem** a congregação (não dominam)
+- **Diáconos servem** nas necessidades práticas
+- **Cristo é o único Cabeça** - a congregação busca Sua vontade através da Palavra e oração
+- **Autonomia local** - cada igreja é independente, sem hierarquia externa
+
+**F. OBSERVAÇÃO IMPORTANTE**
+
+Governo congregacional **não é democracia secular**! É **teocracia** (governo de Deus) exercida através de uma congregação regenerada que busca a vontade de Cristo nas Escrituras.
+
+- Não é "maioria sempre tem razão"
+- É "busquemos juntos a vontade de Deus revelada na Sua Palavra"
+- Requer membros espirituais, orantes e conhecedores da Bíblia
+
+---
+
+**CONCLUSÃO SOBRE GOVERNO**
+
+Enquanto respeitamos irmãos de outras tradições que praticam governo episcopal ou presbiteriano, cremos firmemente que o modelo congregacional reflete melhor o padrão do Novo Testamento e os princípios batistas fundamentais de:
+- **Autonomia da igreja local**
+- **Sacerdócio universal dos crentes**
+- **Soberania de Cristo** (não de hierarquia humana)
+- **Autoridade das Escrituras** (não de tradição eclesiástica)
+
+Cada igreja local, sob a Cabeça que é Cristo e guiada pelo Espírito Santo através da Palavra, tem capacidade e responsabilidade de tomar suas próprias decisões espirituais!
+
 **QUAL É O CORRETO?**
 
-Cristãos fiéis existem em todas essas estruturas! O NT não prescreve um modelo único detalhado. O importante é:
+Cristãos fiéis existem em todas essas estruturas, e devemos respeitá-los como irmãos em Cristo. 
 
-- **Cristo é a cabeça** (Colossenses 1:18)
-- **Liderança qualificada** (1 Timóteo 3; Tito 1)
-- **Submissão mútua** (Efésios 5:21)
-- **Prestação de contas** (Hebreus 13:17)
-- **Unidade no essencial, liberdade no secundário**
+**No entanto, cremos que o governo congregacional é o mais fiel ao padrão bíblico**, pelos motivos apresentados acima. O Novo Testamento não prescreve detalhes completos de estrutura organizacional, mas os princípios e exemplos apontam claramente para a autonomia da igreja local e participação da congregação.
+
+O importante em qualquer estrutura é que:
+
+- **Cristo é a Cabeça** (Colossenses 1:18) - Nenhum sistema humano deve usurpar Sua autoridade
+- **Liderança qualificada** (1 Timóteo 3; Tito 1) - Líderes devem atender aos padrões bíblicos
+- **Submissão mútua** (Efésios 5:21) - Líderes e membros se submetem uns aos outros no Senhor
+- **Prestação de contas** (Hebreus 13:17) - Líderes prestam contas a Deus e à congregação
+- **Autoridade das Escrituras** - A Bíblia, não tradição ou hierarquia, é a autoridade final
 
 ---
 
@@ -5247,7 +5617,86 @@ A missão é global! Todo povo, toda tribo, toda língua (Apocalipse 7:9)!
 
 **E. MEIOS:**
 
-**1. Batizando:** Símbolo público de identificação com Cristo
+**1. Batizando:** O batismo é parte essencial da Grande Comissão. Vejamos o que isso significa:
+
+##### O BATISMO CRISTÃO - A ORDENANÇA DA OBEDIÊNCIA
+
+**O QUE É O BATISMO?**
+
+O batismo é uma **ordenança** (não sacramento) instituída por Jesus Cristo, na qual o crente professo é imerso em água em nome do Pai, do Filho e do Espírito Santo, simbolizando sua união com Cristo em Sua morte, sepultamento e ressurreição.
+
+**QUEM DEVE SER BATIZADO?**
+
+**Somente crentes professos** - aqueles que já se arrependeram e creram em Cristo!
+
+Atos 2:38: *"Arrependam-se, e cada um de vocês seja batizado em nome de Jesus Cristo para perdão dos seus pecados."*
+
+Marcos 16:16: *"Quem crer e for batizado será salvo."*
+
+Note a ordem: **Primeiro crer, depois ser batizado**. Por isso, batistas não batizam crianças (pedobatismo), pois elas ainda não podem fazer profissão de fé genuína. O batismo é para quem já nasceu de novo!
+
+**EXEMPLOS BÍBLICOS:**
+
+- **O Eunuco** (Atos 8:36-38): Creu primeiro, depois foi batizado
+- **O Carcereiro** (Atos 16:30-33): Ele e sua casa creram, então foram batizados
+- **Os Samaritanos** (Atos 8:12): Creram na pregação de Filipe, então foram batizados
+
+**COMO DEVE SER O BATISMO?**
+
+Por **imersão completa** na água! A própria palavra grega "baptizo" significa "mergulhar, imergir".
+
+**Por que imersão?**
+
+**1. É o significado bíblico:** Romanos 6:3-4 descreve o batismo como ser **sepultado** com Cristo - isso requer imersão, não aspersão (borrifar) ou efusão (derramar)!
+
+**2. É o exemplo de Jesus:** Mateus 3:16 - Jesus **saiu da** água (havia entrado nela)
+
+**3. É a prática da igreja primitiva:** Atos 8:38-39 - Filipe e o eunuco **desceram à** água e **saíram da** água
+
+**O QUE O BATISMO SIMBOLIZA?**
+
+Romanos 6:3-4: *"Ou vocês não sabem que todos nós, que fomos batizados em Cristo Jesus, fomos batizados em sua morte? Portanto, fomos sepultados com ele na morte por meio do batismo, a fim de que, assim como Cristo foi ressuscitado dos mortos mediante a glória do Pai, também nós vivamos uma vida nova."*
+
+**O batismo simboliza:**
+
+**1. Morte para o pecado** (descida à água)  
+**2. Sepultamento da velha vida** (imersão)  
+**3. Ressurreição para nova vida** (saída da água)
+
+Colossenses 2:12: *"Isso aconteceu quando vocês foram sepultados com ele no batismo e com ele foram ressuscitados mediante a fé no poder de Deus que o ressuscitou dentre os mortos."*
+
+**O BATISMO SALVA?**
+
+**NÃO!** O batismo não salva ninguém!
+
+Efésios 2:8-9: *"Vocês são salvos pela graça, por meio da fé... não por obras."*
+
+O ladrão na cruz foi salvo sem ser batizado (Lucas 23:43)!
+
+**Mas o batismo é:**
+- **Ato de obediência** ao mandamento de Cristo
+- **Testemunho público** da salvação já recebida
+- **Identificação** com Cristo e Sua igreja
+- **Primeiro passo** de obediência na vida cristã
+
+**QUANDO SER BATIZADO?**
+
+Assim que possível após a conversão genuína! No Novo Testamento, não havia longas esperas - quem cria era batizado (Atos 8:36; 16:33).
+
+**IMPORTANTE - POSIÇÃO BATISTA:**
+
+Como batistas, cremos firmemente que:
+- O batismo é **somente para crentes** (não crianças)
+- O modo é **somente por imersão** (não aspersão)
+- É uma **ordenança** (não sacramento que confere graça)
+- É **símbolo e testemunho** (não meio de salvação)
+- Deve ser realizado em uma **igreja local** por autoridade da congregação
+
+Embora respeitemos irmãos de outras tradições que praticam diferente, cremos que o batismo de professos por imersão é o padrão claro do Novo Testamento.
+
+**Você já foi batizado segundo o mandamento de Cristo? Se você crê em Jesus mas ainda não foi batizado, obedeça hoje!**
+
+---
 
 **2. Ensinando:** A obedecer tudo o que Jesus ordenou - não apenas informação, mas transformação!
 

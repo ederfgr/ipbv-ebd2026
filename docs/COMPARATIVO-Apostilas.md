@@ -233,3 +233,4 @@ A nova apostila **"O Que Cremos"** mantém o **espírito discipulador** da apost
 *Elaborado em: Fevereiro de 2026*  
 *Igreja Batista Pedras Vivas - Escola Bíblica Dinâmica*
 
+
