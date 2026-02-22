@@ -349,6 +349,41 @@ A visão responde à pergunta: **Qual Igreja queremos construir com a graça de 
 
 A nossa declaração de visão busca expressar o que desejamos ser e a direção para onde a liderança está conduzindo a igreja.
 
+#### CULTURA
+
+A cultura é **o modo como construímos a visão**. 
+
+É o **conjunto de hábitos, valores e comportamentos** que intencionalmente semeamos e construímos para que possamos chegar àquela visão que sonhamos para a IBPV. 
+
+A cultura é:
+- **O caminho que nos conduz** ao que sonhamos
+- **Intencional:** não surge por acaso, é planejada e cultivada pela liderança
+- **Ensinável:** pode ser comunicada, aprendida e transmitida de uns aos outros
+- **O que permite criar o caminho** que nos levará à nossa visão
+
+A vida da IBPV está fundamentalmente na **cultura que construímos**. Missão e visão são importantes, mas sem uma cultura forte e saudável, não conseguimos chegar aonde queremos.
+
+#### ESTRUTURA
+
+A estrutura são **as ferramentas para a construção de uma cultura** que nos levarão à visão desejada.
+
+Estrutura é:
+- **As ferramentas práticas** (ministérios, grupos, programas, reuniões, organogramas)
+- **Necessária, mas não suficiente:** *a estrutura é inútil sem a cultura*
+- **Um meio, não um fim:** deve facilitar o espalhamento da cultura por toda a igreja
+- **Mutável:** deve mudar sempre que não estiver a serviço da visão
+
+Podemos ter a melhor estrutura do mundo, mas se a cultura não estiver alinhada com nossa missão e visão, a estrutura não vai levar a nada. Por outro lado, uma cultura forte pode até funcionar com estrutura frágil.
+
+#### A RELAÇÃO ENTRE MISSÃO, VISÃO, CULTURA E ESTRUTURA
+
+**Missão** nos diz **por que existimos** (é inegociável)  
+**Visão** nos mostra **para onde vamos** (deve ser reafirmada sempre)  
+**Cultura** determina **como chegamos lá** (é onde a vida da igreja acontece)  
+**Estrutura** fornece **as ferramentas** (deve estar sempre a serviço da visão)
+
+A conclusão importante é: **Estrutura deve mudar sempre que não estiver a serviço da visão!** Não devemos ficar presos a estruturas antigas e ineficientes apenas porque "sempre fizemos assim". A estrutura existe para servir à cultura que queremos construir.
+
 #### VALORES
 
 Os valores respondem à pergunta: **Como caminhamos? Quais são os princípios que guiam nossas decisões e nosso comportamento como comunidade?**
@@ -405,8 +440,6 @@ Os Ministérios são grupos organizados ao redor de uma área específica de ser
 - **Ministérios Funcionais:** Evangelismo e Missões, Ensino, Misericórdia, Música, Oração.
 - **Ministérios de Apoio:** Recepção, Estacionamento, Backstage, Comunicação, Cozinha, Eventos e Decoração, Cuidado Patrimonial
 - **Ministérios com Público Específico:** Integra e Ágape (surdos)
-
-[Lista completa dos Ministérios da IBPV — a ser inserida]
 
 ---
 
