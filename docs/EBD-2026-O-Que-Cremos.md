@@ -23,82 +23,87 @@ Que o Espírito Santo nos guie em todo conhecimento da verdade!
 
 ## ÍNDICE DAS AULAS
 
+### NOSSA HISTÓRIA E IDENTIDADE
+**AULA 1** - Nossa História — A Denominação e a IBPV
+**AULA 2** - Como Nos Organizamos — Missão, Visão, Valores e Estrutura
+**AULA 3** - Como Crescemos Espiritualmente
+
 ### INTRODUÇÃO BÍBLICA
-**AULA 1** - A Palavra de Deus: Nosso Fundamento
+**AULA 4** - A Palavra de Deus: Nosso Fundamento
 - Revelação Geral e Especial
 - Inspiração, Canonização, Preservação
 - Iluminação e Inerrância
 
 ### A DOUTRINA DE DEUS
-**AULA 2** - A Trindade: Um Só Deus em Três Pessoas
+**AULA 5** - A Trindade: Um Só Deus em Três Pessoas
 - O Pai, o Filho e o Espírito Santo
 - União e Distinção das Três Pessoas
 
-**AULA 3** - Os Atributos de Deus: Conhecendo o Caráter de Deus
+**AULA 6** - Os Atributos de Deus: Conhecendo o Caráter de Deus
 - Atributos Incomunicáveis
 - Atributos Comunicáveis
 - Deus de Perto e de Longe
 
 ### A DOUTRINA DO HOMEM
-**AULA 4** - A Criação do Homem: Feitos à Imagem de Deus
+**AULA 7** - A Criação do Homem: Feitos à Imagem de Deus
 - Criação e Constituição (Corpo, Alma e Espírito)
 - A Imagem de Deus no Homem
 
-**AULA 5** - Livre-Arbítrio e a Queda do Homem
+**AULA 8** - Livre-Arbítrio e a Queda do Homem
 - A Escolha à Desobediência
 - Indução Externa na Queda do Homem
 - Ausência de Indução Externa na Queda dos Anjos
 
 ### A DOUTRINA DO PECADO
-**AULA 6** - A Doutrina do Pecado: Compreendendo o Problema
+**AULA 9** - A Doutrina do Pecado: Compreendendo o Problema
 - Conceito e Perspectiva Bíblica do Pecado
 - As Consequências do Pecado
 
 ### A DOUTRINA DE JESUS CRISTO
-**AULA 7** - Jesus Cristo: Plenamente Deus e Plenamente Homem
+**AULA 10** - Jesus Cristo: Plenamente Deus e Plenamente Homem
 - A Natureza de Jesus
 - A Humanidade e a Divindade de Jesus
 - A União das Duas Naturezas
 
-**AULA 8** - Jesus Cristo: Humilhação, Exaltação e Seus Ofícios
+**AULA 11** - Jesus Cristo: Humilhação, Exaltação e Seus Ofícios
 - O Estado de Humilhação
 - O Estado de Exaltação
 - A Atuação de Jesus: Profeta, Sacerdote e Rei
 
 ### A DOUTRINA DO ESPÍRITO SANTO
-**AULA 9** - O Espírito Santo: Pessoa e Obra
+**AULA 12** - O Espírito Santo: Pessoa e Obra
 - A Pessoa do Espírito
 - A Obra do Espírito na Salvação e na Vida Cristã
 
-**AULA 10** - Os Dons e o Fruto do Espírito Santo
+**AULA 13** - Os Dons e o Fruto do Espírito Santo
 - Os Dons do Espírito
 - O Fruto do Espírito
 
 ### A DOUTRINA DA SALVAÇÃO
-**AULA 11** - A Doutrina da Salvação - Parte 1
+**AULA 14** - A Doutrina da Salvação - Parte 1
 - Conceito de Salvação
 - Os Cinco Pontos: Arminianismo e Calvinismo
 - O Chamado: Geral e Eficaz
 
-**AULA 12** - A Doutrina da Salvação - Parte 2
+**AULA 15** - A Doutrina da Salvação - Parte 2
 - Conversão: Arrependimento e Fé
 - União com Cristo: Justificação, Adoção, Regeneração
 - Santificação, Perseverança dos Santos, Glorificação
 
 ### A DOUTRINA DAS ÚLTIMAS COISAS
-**AULA 13** - A Doutrina das Últimas Coisas (Escatologia)
+**AULA 16** - A Doutrina das Últimas Coisas (Escatologia)
 - Escatologia Pessoal: Morte e Estado Intermediário
 - Escatologia Geral: Segunda Vinda, Ressurreição, Juízo Final
 - O Céu e o Inferno
 
 ### A DOUTRINA DA IGREJA
-**AULA 14** - A Doutrina da Igreja - Parte 1
+**AULA 17** - A Doutrina da Igreja - Parte 1
 - O Significado Básico do Termo "Igreja"
 - A Unidade da Igreja
 - Figuras Bíblicas da Igreja
 - As Funções da Igreja
 
-**AULA 15** - A Doutrina da Igreja - Parte 2
+**AULA 18** - A Doutrina da Igreja - Parte 2
 - Os Líderes da Igreja: Pastor, Presbítero, Diácono, Evangelista, Apóstolo
 - Formas de Governo: Episcopal, Presbiteriano, Congregacional
 - O Sustento da Igreja
@@ -107,6 +112,588 @@ Que o Espírito Santo nos guie em todo conhecimento da verdade!
 ---
 
 # AULA 1
+## NOSSA HISTÓRIA
+### A Denominação e a Igreja Batista Pedras Vivas
+
+### OBJETIVO DA AULA
+Conhecer a história do movimento batista e as origens da Igreja Batista Pedras Vivas, compreendendo como essa herança molda nossa identidade e compromissos hoje.
+
+---
+
+### PARTE 1 — HISTÓRIA DA DENOMINAÇÃO BATISTA
+
+#### 1. RAÍZES NA REFORMA PROTESTANTE
+
+O movimento batista tem suas raízes profundas na Reforma Protestante do século XVI. Quando Martinho Lutero pregou as 95 Teses em 1517, abriu-se uma era de redescoberta das Escrituras. 
+
+Os batistas surgem no contexto do século XVII e estão ligados ao ambiente puritano e separatista inglês (Igreja Anglicana).
+
+São fruto do desenvolvimento da Reforma Protestante, não um movimento paralelo a ela, ou seja, os batistas não são uma "igreja original contínua", mas uma expressão histórica da Reforma.
+
+#### 2. AS PRIMEIRAS IGREJAS BATISTAS
+
+A primeira igreja batista de que há registro foi fundada em Amsterdã, na Holanda, por volta de 1609, liderada por John Smyth e Thomas Helwys — ingleses exilados. Helwys retornou à Inglaterra e fundou a primeira igreja batista em solo inglês em 1612, em Londres.
+
+Desde o início, os batistas defenderam dois princípios que os tornaram alvos de perseguição:
+- Liberdade religiosa para todos — não apenas para si mesmos
+- Separação entre Igreja e Estado
+
+#### 3. DUAS TRADIÇÕES BATISTAS
+
+No século XVII, surgiram duas correntes principais:
+- **Batistas Gerais:** seguiam uma soteriologia mais próxima do arminianismo, acreditando que Cristo morreu por todos os homens.
+- **Batistas Particulares:** seguiam uma soteriologia reformada (calvinista), acreditando na eleição particular. Foram estes que produziram a influente Confissão de Fé de Londres de 1689.
+
+#### 4. EXPANSÃO PARA A AMÉRICA E O MUNDO
+
+Roger Williams fundou a primeira igreja batista da América em Providence, Rhode Island, em 1638, e lutou pioneiramente pela liberdade religiosa. No século XVIII, o Grande Avivamento impulsionou o crescimento batista enormemente. No século XIX, o movimento missionário batista se expandiu globalmente, com figuras como William Carey, o 'pai das missões modernas'.
+
+No Brasil, os primeiros missionários batistas chegaram em 1859, vindos dos Estados Unidos. Em 1907, foi fundada a Convenção Batista Brasileira, que organiza e coordena a cooperação entre as igrejas batistas do país.
+
+#### 5. ELEMENTOS TEOLÓGICOS DISTINTIVOS
+
+Os batistas historicamente se distinguem por alguns princípios fundamentais:
+- Batismo de crentes por imersão – somente após confissão de fé.
+- Autonomia da Igreja local.
+- Liberdade religiosa e separação Igreja-Estado.
+- Bíblia como única autoridade (Sola Scriptura).
+- Sacerdócio universal de todos os crentes
+- Membresia composta apenas por crentes regenerados.
+- Duas ordenanças: Batismo e Ceia do Senhor
+- Congregacionalidade – decisões tomadas pela assembleia da igreja.  
+- Cooperação voluntária entre igrejas.
+
+#### 6. FATOS MARCANTES
+
+- **1517** – Reforma Protestante com Martinho Lutero. 
+- **1608** – Separatistas ingleses fogem para Amsterdã. 
+- **1609** – John Smyth adota o batismo de crentes. 
+- **1611** – Thomas Helwys funda a primeira Igreja Batista na Inglaterra. 
+- **1638** – Roger Williams organiza a primeira Igreja Batista nos EUA. 
+- **1792** – William Carey inicia o movimento missionário moderno. 
+- **1881** – Chegada dos missionários William e Anne Bagby e Zacarias Taylor ao Brasil. 
+- **1882** – Primeira Igreja Batista no Brasil, em Salvador (BA). 
+- **1907** – Fundação da Convenção Batista Brasileira (CBB). 
+- **1908** – Criação do Seminário Teológico Batista do Sul do Brasil. 
+- **Século XIX–XX** – Expansão global das igrejas batistas.
+- **Século XX–XXI** – Forte expansão nacional, atuação em missões, educação e ação social.
+
+---
+
+### PARTE 2 — HISTÓRIA DA IBPV
+
+O conteúdo sobre a história específica da Igreja Batista Pedras Vivas será acrescentado pela liderança da igreja. Este espaço é reservado para essa história, que inclui:
+- As origens e a visão que deu origem à IBPV
+- Os fundadores e pioneiros
+- Momentos marcantes e transformadores
+- O crescimento e desenvolvimento até hoje
+- A visão para o futuro
+
+[Conteúdo a ser inserido pela liderança da IBPV]
+
+---
+
+### EXERCÍCIOS
+
+**1. O que você sabia sobre a história batista antes desta aula? O que mais te surpreendeu?**
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+
+**2. Quais são os principais princípios que distinguem os batistas de outras denominações?**
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+
+**3. Por que a liberdade religiosa foi tão importante para os primeiros batistas? Como isso se reflete na nossa prática hoje?**
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+
+**4. O que significa dizer que a Bíblia é a única autoridade para fé e prática?**
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+
+**5. Como a história da denominação e da IBPV pode fortalecer sua identidade como membro desta igreja?**
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+
+---
+
+### VERSÍCULO PARA MEMORIZAR
+
+**"Portanto, vocês já não são estrangeiros nem forasteiros, mas concidadãos dos santos e membros da família de Deus, edificados sobre o fundamento dos apóstolos e profetas, sendo Cristo Jesus o principal pedra angular."**
+**Efésios 2:19-20**
+
+Escreva o versículo abaixo de memória:
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+
+---
+
+### DIANTE DE TUDO QUE VOCÊ ESTUDOU, QUAL FOI O PRINCIPAL APRENDIZADO DE HOJE?
+
+Hoje eu aprendi que ___________________________________________________________
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+---
+
+**Próxima aula:** Como Nos Organizamos — Missão, Visão, Valores e Estrutura da IBPV
+
+---
+
+# AULA 2
+## COMO NOS ORGANIZAMOS
+### Missão, Visão, Valores e Estrutura da IBPV
+
+### OBJETIVO DA AULA
+Compreender a identidade organizacional da IBPV — sua missão, visão e valores — e conhecer a estrutura que organiza sua vida comunitária, desde a assembleia até os ministérios.
+
+---
+
+### PARTE 1 — MISSÃO, VISÃO E VALORES
+
+Toda comunidade organizada precisa responder a três perguntas fundamentais: Para que existimos? Para onde vamos? E como caminhamos? São exatamente essas perguntas que a Missão, a Visão e os Valores procuram responder.
+
+#### MISSÃO
+
+A missão responde à pergunta: **Para que existimos?**
+
+**Amar a Deus, Amar as Pessoas e Fazer Discípulos.**
+
+A nossa Declaração de Missão é uma síntese do "Grande Mandamento" (Mateus 22:37-39) e da "Grande Comissão" (Mateus 28:19). Ela contempla o que acreditamos ser essencial no ensino de Jesus para seus discípulos equilibrando a dimensão vertical (Deus), a dimensão horizontal (pessoas) e a dimensão estratégica/crescimento (discípulos). 
+
+Ela foi pensada para facilitar a memorização e deve funcionar como um lema, sintetizando o propósito, atuando internamente como guia comportamental e, externamente, como identidade.
+
+#### VISÃO
+
+A visão responde à pergunta: **Qual Igreja queremos construir com a graça de Deus?**
+
+**Ser uma Igreja que vive o Evangelho de forma bíblica, acolhedora, discipuladora e missionária, impactando nossa cidade e as nações.**
+
+A nossa declaração de visão busca expressar o que desejamos ser e a direção para onde a liderança está conduzindo a igreja.
+
+#### VALORES
+
+Os valores respondem à pergunta: **Como caminhamos? Quais são os princípios que guiam nossas decisões e nosso comportamento como comunidade?**
+
+Estes são os princípios inegociáveis que guiam todas as nossas ações e decisões como igreja local:
+
+- **Fidelidade Bíblica:** Nossa única regra de fé e prática é a Bíblia Sagrada. Vivemos e ensinamos as Escrituras com integridade e zelo.
+- **Acolhimento Intencional:** Valorizamos cada pessoa como imagem e semelhança de Deus. Criamos ambientes onde as pessoas se sintam amadas, aceitas e pertencentes.
+- **Discipulado Relacional:** Formamos seguidores de Cristo. Investimos na maturidade espiritual através de relacionamentos de cuidado mútuo.
+- **Paixão Missionária:** Existimos para além de nós mesmos. Estamos comprometidos em levar a esperança do Evangelho aos nossos vizinhos e a todas as nações.
+- **Integração de Gerações:** Somos uma família. Valorizamos a conexão entre todas as idades, aprendendo com a sabedoria dos mais velhos e a energia dos jovens, celebrando a unidade do Corpo de Cristo.
+- **Transparência e Integridade:** Honramos a Deus gerenciando os recursos da igreja com ética, responsabilidade e prestação de contas clara e acessível.
+- **Oração e Dependência:** Reconhecemos que nada podemos fazer sem o Senhor. A oração é o combustível de todos os nossos ministérios.
+
+---
+
+### PARTE 2 — ESTRUTURA DA IBPV
+
+Uma igreja batista bem organizada possui instâncias de decisão e grupos de serviço que garantem que toda a comunidade participe e que o trabalho seja feito com excelência e responsabilidade.
+
+#### 1. ASSEMBLEIA GERAL
+
+A Assembleia Geral é o órgão máximo de decisão da IBPV. Nela, todos os membros em plena comunhão têm voz e voto. Isso reflete o princípio batista do governo congregacional: a autoridade final (sob Cristo) reside na congregação reunida.
+
+A Assembleia delibera sobre questões como: eleição de líderes, aprovação de orçamento, admissão e exclusão de membros, aquisição de patrimônio, e outros assuntos de grande relevância para a vida da igreja.
+
+*"...diga-o à igreja" (Mateus 18:17)*
+
+*"Então os apóstolos e os presbíteros, com toda a igreja, decidiram..." (Atos 15:22)*
+
+#### 2. A ADMINISTRAÇÃO DA IGREJA
+
+A administração da Igreja será exercida por um Conselho Diretor composto de um número ilimitado de membros dentre os quais serão indicados um vice-presidente, dois secretários e dois tesoureiros, membros civilmente capazes, que não serão remunerados pelos exercícios dessas funções.
+
+Os componentes do Conselho Diretor serão indicados pelo presidente da igreja, que será sempre o pastor, cuja indicação deverá ser homologada pela igreja em assembleia extraordinária. Eles terão mandato por um período de dois anos, com possibilidade de renovação.
+
+[Detalhes do Conselho Diretor da IBPV — a ser inserido]
+
+#### 3. PGM — PEQUENO GRUPO MULTIPLICADOR
+
+É um pequeno grupo de pessoas que se reúne regularmente para glorificar a Deus por meio do fortalecimento de relacionamentos discipuladores e da multiplicação de discípulos.
+
+Os PGMs são a principal estrutura de comunhão e cuidado mútuo na IBPV.
+
+Os PGMs não substituem o culto congregacional — eles o complementam. Enquanto no culto adoramos juntos como grande família, nos PGMs vivemos a comunhão de forma mais íntima e pessoal.
+
+*"Dia após dia, no templo e de casa em casa, nunca deixavam de ensinar e anunciar as boas-novas de que Jesus é o Messias." (Atos 2:46)*
+
+#### 4. MINISTÉRIOS
+
+Os Ministérios são grupos organizados ao redor de uma área específica de serviço, reunindo pessoas com dons e paixões semelhantes para servir à igreja e ao mundo.
+
+- **Ministérios Geracionais:** Infantil, MOVER (adolescentes), Refúgio (jovens), Preferenciais (idosos).
+- **Ministérios Funcionais:** Evangelismo e Missões, Ensino, Misericórdia, Música, Oração.
+- **Ministérios de Apoio:** Recepção, Estacionamento, Backstage, Comunicação, Cozinha, Eventos e Decoração, Cuidado Patrimonial
+- **Ministérios com Público Específico:** Integra e Ágape (surdos)
+
+[Lista completa dos Ministérios da IBPV — a ser inserida]
+
+---
+
+### EXERCÍCIOS
+
+**1. Por que é importante que uma igreja tenha missão, visão e valores claramente definidos?**
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+
+**2. Como o governo congregacional reflete o princípio bíblico do sacerdócio de todos os crentes?**
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+
+**3. Qual é a diferença entre a Assembleia e a Diretoria? Por que ambas são necessárias?**
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+
+**4. Por que os PGMs são importantes para a vida cristã? Você faz parte de algum? Gostaria de fazer?**
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+
+**5. Em qual ministério você já serve ou gostaria de servir? Por quê?**
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+
+---
+
+### VERSÍCULO PARA MEMORIZAR
+
+**"Ora, vocês são o corpo de Cristo, e cada um de vocês, individualmente, é membro desse corpo."**
+**1 Coríntios 12:27**
+
+Escreva o versículo abaixo de memória:
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+
+---
+
+### DIANTE DE TUDO QUE VOCÊ ESTUDOU, QUAL FOI O PRINCIPAL APRENDIZADO DE HOJE?
+
+Hoje eu aprendi que ___________________________________________________________
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+---
+
+**Próxima aula:** Como Crescemos Espiritualmente
+
+---
+
+# AULA 3
+## COMO CRESCEMOS ESPIRITUALMENTE
+
+### OBJETIVO DA AULA
+Compreender os três eixos do crescimento espiritual cristão: o relacionamento vertical com Deus (oração e Palavra), o relacionamento horizontal com outros cristãos (comunhão e serviço) e o relacionamento com não-cristãos (serviço, evangelismo e missões).
+
+---
+
+### INTRODUÇÃO: CRESCER EM SEMELHANÇA A CRISTO
+
+O objetivo central da vida cristã é ser cada vez mais semelhante a Jesus Cristo. Paulo descreve isso assim:
+
+*"Porque os que de antemão conheceu, também os predestinou para serem conformes à imagem de seu Filho." (Romanos 8:29)*
+
+*"E todos nós, com rosto descoberto, contemplando como em espelho a glória do Senhor, somos transformados de glória em glória na mesma imagem." (2 Coríntios 3:18)*
+
+Esse crescimento não acontece de forma isolada ou automática. Deus nos transforma por meio de meios de graça — práticas e relacionamentos pelos quais o Espírito Santo trabalha em nós. A tradição reformada batista identifica três eixos principais de crescimento espiritual:
+
+- **Relacionamento com Deus** — pela oração e pela Palavra
+- **Relacionamento com cristãos** — pela comunhão nos PGMs e serviço nos ministérios
+- **Relacionamento com não-cristãos** — pelo evangelismo e missões
+
+---
+
+### EIXO 1 — RELACIONAMENTO COM DEUS
+
+#### A. ORAÇÃO: CONVERSANDO COM O PAI
+
+A oração é o fôlego da vida espiritual. É por meio dela que nos comunicamos com Deus, expressamos nossa dependência, apresentamos nossas necessidades e nos sintonizamos com a vontade Dele.
+
+*"Não andem ansiosos por coisa alguma, mas em tudo, pela oração e súplicas, e com ação de graças, apresentem seus pedidos a Deus. E a paz de Deus, que excede todo o entendimento, guardará o coração e a mente de vocês em Cristo Jesus." (Filipenses 4:6-7)*
+
+A Bíblia descreve diferentes formas de oração:
+- **Adoração:** glorificar a Deus por quem Ele é (Salmos 145)
+- **Confissão:** reconhecer e confessar os pecados (1 João 1:9)
+- **Ação de Graças:** agradecer pelas bênçãos recebidas (1 Tessalonicenses 5:18)
+- **Súplica:** apresentar nossas necessidades pessoais (Mateus 7:7-8)
+- **Intercessão:** orar pelos outros (1 Timóteo 2:1)
+
+Jesus ensinou Seus discípulos a orar (Mateus 6:9-13) e Ele mesmo tinha disciplina de oração, retirando-se para orar mesmo em meio a agendas cheias (Lucas 5:16; Marcos 1:35).
+
+A oração eficaz nasce de um coração crente, humilde e alinhado com a vontade de Deus. Não é técnica mágica, mas diálogo real com o Pai amoroso que nos convida: "Clama a mim, e eu te responderei" (Jeremias 33:3).
+
+#### B. A PALAVRA DE DEUS: ALIMENTO ESPIRITUAL
+
+Se a oração é a voz do cristão falando com Deus, a Palavra de Deus é a voz de Deus falando com o cristão. Não podemos crescer espiritualmente sem alimentação regular na Palavra.
+
+*"Lâmpada para os meus pés é a tua palavra e luz para o meu caminho." (Salmos 119:105)*
+
+*"Toda a Escritura é inspirada por Deus e útil para o ensino, para a repreensão, para a correção e para a instrução na justiça, para que o homem de Deus seja apto e plenamente preparado para toda boa obra." (2 Timóteo 3:16-17)*
+
+Práticas para o relacionamento com a Palavra:
+- **Leitura diária:** ler a Bíblia sistematicamente, com plano de leitura
+- **Meditação:** refletir profundamente em passagens específicas (Salmos 1:2-3)
+- **Memorização:** guardar versículos no coração (Salmos 119:11)
+- **Estudo:** aprofundar o entendimento com auxílio de comentários e dicionários
+- **Aplicação:** perguntar sempre: como isso transforma minha vida?
+
+A Palavra de Deus não é apenas informação — é o meio pelo qual Deus fala, transforma, consola, corrige e guia. O Espírito Santo usa a Palavra como instrumento de santificação (João 17:17).
+
+Oração e Palavra caminham juntas: na Palavra Deus fala conosco; na oração nós falamos com Deus. Separá-las é empobrecer o relacionamento com Deus.
+
+---
+
+### EIXO 2 — RELACIONAMENTO COM CRISTÃOS
+
+#### A. COMUNHÃO NOS PGMs
+
+Deus nos criou para relacionamento. Não é à toa que, ao criar Adão, Ele disse: "Não é bom que o homem esteja só" (Gênesis 2:18). O mesmo princípio se aplica à vida espiritual. Fomos feitos para viver a fé em comunidade.
+
+*"Consideremos uns aos outros para nos estimularmos ao amor e às boas obras. Não deixemos de reunir-nos, como alguns têm por costume, mas encorajemos uns aos outros, e tanto mais quanto mais vocês veem o dia se aproximando." (Hebreus 10:24-25)*
+
+Os PGMs (Pequenos Grupos Multiplicadores) são o espaço principal onde a comunhão cristã se aprofunda na IBPV. Diferentemente do culto dominical — que é mais amplo e celebrativo — o PGM oferece um ambiente de intimidade onde:
+- Oramos uns pelos outros de forma pessoal
+- Estudamos a Bíblia e aplicamos à vida real
+- Nos encorajamos nas dificuldades
+- Nos responsabilizamos mutuamente no crescimento
+- Cuidamos uns dos outros nas necessidades práticas
+
+A comunhão cristã bíblica (koinonia) vai muito além de "se dar bem". É um comprometimento com o crescimento mútuo, suportando cargas uns dos outros (Gálatas 6:2), confessando pecados uns aos outros (Tiago 5:16) e incentivando uns aos outros no amor (Hebreus 3:13).
+
+#### B. SERVIÇO NOS MINISTÉRIOS
+
+O serviço é uma marca indispensável da vida cristã madura. Jesus Mesmo veio "não para ser servido, mas para servir" (Marcos 10:45) e chamou Seus seguidores ao mesmo caminho.
+
+*"Cada um exerça o dom que recebeu para servir os outros, administrando fielmente a graça de Deus em suas múltiplas formas." (1 Pedro 4:10)*
+
+Servir nos ministérios da IBPV é:
+- Uma expressão de gratidão pela graça recebida
+- Um exercício dos dons espirituais que Deus nos deu
+- Uma forma de edificar o corpo de Cristo
+- Uma oportunidade de crescer em caráter
+
+Todo cristão nascido de novo recebeu pelo menos um dom espiritual (1 Coríntios 12:7). Esses dons não são para uso pessoal — são para servir o corpo. Quando cada membro serve conforme seu dom, a igreja cresce saudável e o mundo vê o amor de Cristo em ação.
+
+---
+
+### EIXO 3 — RELACIONAMENTO COM NÃO-CRISTÃOS
+
+#### A. EVANGELISMO: A MISSÃO DO COTIDIANO
+
+Todo cristão é chamado a ser testemunha de Jesus Cristo no seu círculo de relacionamentos. Evangelismo não é atividade de especialistas — é estilo de vida de toda pessoa que foi transformada pelo evangelho.
+
+*"Antes, santifiquem Cristo como Senhor em seus corações. Estejam sempre preparados para responder a qualquer pessoa que lhes pedir a razão da esperança que há em vocês." (1 Pedro 3:15)*
+
+*"Assim brilhe a luz de vocês diante dos homens, para que vejam as suas boas obras e glorifiquem o Pai de vocês, que está nos céus." (Mateus 5:16)*
+
+O evangelismo eficaz começa com um testemunho de vida — uma vida transformada pelo evangelho que desperta curiosidade e perguntas. E quando as perguntas vêm, estamos prontos para responder com gentileza e respeito.
+
+A tradição reformada batista enfatiza que o evangelismo é obra do Espírito Santo — somos instrumentos, não autores da salvação. Isso nos liberta do peso de "converter pessoas" e nos coloca no papel de fiéis mensageiros. Plantamos e regamos; Deus dá o crescimento (1 Coríntios 3:6-7).
+
+Formas práticas de evangelismo no cotidiano:
+- Cultivar amizades genuínas com não-cristãos
+- Servir e demonstrar amor sem agenda oculta
+- Compartilhar sua história de transformação (seu testemunho)
+- Convidar para cultos, PGMs e eventos da IBPV
+- Responder perguntas sobre a fé com honestidade
+
+#### B. MISSÕES: ATÉ OS CONFINS DA TERRA
+
+Além do evangelismo local e pessoal, Deus chama Sua Igreja a alcançar povos que ainda não ouviram o evangelho. Isso é o que chamamos de missões — o envio intencional de pessoas e recursos para alcançar os não-alcançados (ou pouco alcançados) dentro de um outro contexto cultural.
+
+*"Mas receberão poder quando o Espírito Santo descer sobre vocês, e serão minhas testemunhas em Jerusalém, em toda a Judeia e Samaria, e até os confins da terra." (Atos 1:8)*
+
+Todos os cristãos são chamados a participar das missões, mesmo que não sejam missionários de tempo integral:
+- **Orando:** intercedendo pelos missionários e pelos povos não-alcançados
+- **Ofertando:** sustentando financeiramente o trabalho missionário
+- **Indo:** participando de viagens missionárias ou sendo enviado ao campo
+- **Mobilizando:** inspirando, despertando e capacitando a Igreja e cada cristão individualmente para se engajarem ativamente na missão de Deus pelo mundo.
+
+A missão de Deus (missio Dei) é o fio que percorre toda a Bíblia, do chamado de Abraão ("em você serão abençoadas todas as famílias da terra" — Gênesis 12:3) até a visão de Apocalipse ("uma grande multidão que ninguém podia contar, de toda nação, tribo, povo e língua" — Apocalipse 7:9).
+
+*"Como, pois, invocarão aquele em quem não creram? E como crerão naquele de quem não ouviram falar? E como ouvirão sem alguém que pregue? E como pregarão, se não forem enviados?" (Romanos 10:14-15)*
+
+---
+
+### OS TRÊS EIXOS EM EQUILÍBRIO
+
+Uma vida cristã saudável e equilibrada se caracteriza pela presença dos três eixos:
+- Sem relacionamento com Deus (Palavra e oração), o serviço se torna ativismo humano sem poder espiritual.
+- Sem comunhão com outros cristãos, o crescimento é frágil e o crente fica vulnerável.
+- Sem envolvimento com não-cristãos (evangelismo e missões), a fé se fecha em si mesma e perde sua vocação.
+
+Jesus viveu o modelo perfeito: buscava o Pai em oração, vivia em comunhão com os discípulos e ia ao encontro dos perdidos. Somos chamados a seguir Seu exemplo.
+
+---
+
+### EXERCÍCIOS
+
+**1. Qual é o seu padrão atual de oração? Como você pode torná-lo mais consistente?**
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+
+**2. Você tem um plano de leitura bíblica? Se não, o que te impede de ter um?**
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+
+**3. Você participa de um PGM? Como a comunhão com outros cristãos tem contribuído para seu crescimento?**
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+
+**4. Liste três pessoas não-cristãs com quem você tem relacionamento. Como você pode ser uma testemunha para elas?**
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+
+**5. Descreva como os três eixos (Deus, cristãos, não-cristãos) se equilibram em sua vida atualmente. Em qual área você precisa crescer mais?**
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+
+**6. Leia Colossenses 3:16-17. Que papel a Palavra e a oração têm na vida da comunidade cristã?**
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+
+**7. Como a Grande Comissão (Mateus 28:19-20) nos chama ao relacionamento com não-cristãos? Qual é sua parte nessa missão?**
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+
+---
+
+### VERSÍCULO PARA MEMORIZAR
+
+**"Portanto, da mesma forma que receberam Cristo Jesus como Senhor, vivam nele, enraizados e edificados nele, consolidados na fé como vocês foram ensinados, e transbordando de gratidão."**
+**Colossenses 2:6-7**
+
+Escreva o versículo abaixo de memória:
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+
+---
+
+### DIANTE DE TUDO QUE VOCÊ ESTUDOU, QUAL FOI O PRINCIPAL APRENDIZADO DE HOJE?
+
+Hoje eu aprendi que ___________________________________________________________
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+_______________________________________________________________________________
+
+---
+
+**Próxima aula:** A Palavra de Deus: Nosso Fundamento
+
+---
+
+# AULA 4
 ## A PALAVRA DE DEUS: NOSSO FUNDAMENTO
 
 ### OBJETIVO DA AULA
@@ -217,72 +804,6 @@ Mas significa que:
 - Podemos confiar nela completamente como nossa regra de fé e prática
 
 Jesus mesmo confirmou a confiabilidade das Escrituras: *"A Escritura não pode ser anulada"* (João 10:35).
-
-#### 8. SOMENTE A ESCRITURA - NOSSA ÚNICA AUTORIDADE
-
-**POSIÇÃO BATISTA: SOLA SCRIPTURA**
-
-Como batistas, cremos firmemente no princípio de **Sola Scriptura** (Somente a Escritura). Isso significa que:
-
-**A BÍBLIA É NOSSA ÚNICA REGRA DE FÉ E PRÁTICA**
-
-**Não seguimos:**
-- Tradições da igreja como autoridade igual à Escritura
-- Credos ou confissões de fé como autoritativos (embora possam ser úteis para resumir ensinos bíblicos)
-- Concílios eclesiásticos ou pronunciamentos papais
-- Revelações ou profecias modernas que adicionem à Escritura
-
-**Seguimos SOMENTE:**
-- A Bíblia Sagrada como nossa autoridade final e suficiente
-
-2 Timóteo 3:16-17: *"Toda a Escritura é inspirada por Deus e útil para o ensino, para a repreensão, para a correção e para a instrução na justiça, para que o homem de Deus seja apto e **plenamente preparado** para toda boa obra."*
-
-A Escritura é **suficiente** - nos deixa "plenamente preparados"!
-
-**Por que somente a Escritura?**
-
-**1. A Bíblia reivindica autoridade final:**
-- Isaías 8:20: *"À lei e ao testemunho! Se eles não falarem segundo esta palavra, não haverá neles luz da alva."*
-- Gálatas 1:8: *"Mas ainda que nós ou um anjo dos céus pregue um evangelho diferente... seja amaldiçoado!"*
-
-**2. Tradições humanas podem errar:**
-- Marcos 7:8-9: Jesus repreendeu os fariseus por colocarem tradição acima da Palavra de Deus
-- Colossenses 2:8: *"Tenham cuidado para que ninguém os escravize a filosofias vãs e enganosas... e não segundo Cristo."*
-
-**3. O Espírito Santo trabalha através da Palavra:**
-- A Palavra é **viva e eficaz** (Hebreus 4:12)
-- O Espírito nos guia através da Escritura, não independente dela
-- João 16:13: *"O Espírito da verdade... vos guiará a toda a verdade"* - verdade já revelada na Palavra!
-
-**4. Competência da alma perante Deus:**
-- Cada pessoa pode ler e entender a Bíblia pelo Espírito Santo
-- Não precisamos de intermediário humano para interpretar a Escritura
-- 1 João 2:27: *"A unção que vocês receberam dele permanece em vocês, e vocês não precisam que alguém os ensine."*
-
-**IMPORTANTE - NÃO SOMOS CONFESSIONAIS:**
-
-Embora respeite mosos cristãos reformados que seguem confissões históricas (Westminster, 1689, etc.), **como batistas não somos confessionais**. Isso significa:
-
-- **Não aderimos formalmente a credos** ou confissões como autoridade
-- **Usamos confissões como ferramentas** educacionais, não como documentos autoritativos
-- **Testamos tudo pela Escritura**, não por tradição teológica
-- **Nossa única confissão autoritativa é a Bíblia**
-
-Isso não significa que rejeitamos toda teologia sistemática ou que "cada um interpreta como quer". Significa que:
-- **A Bíblia julga toda teologia**, não o contrário
-- **Aprendemos com a história da igreja**, mas a Escritura tem a palavra final
-- **Quando sistemas teológicos divergem, voltamos à Bíblia**
-
-**APLICAÇÃO PRÁTICA:**
-
-Quando você estuda doutrina:
-1. **Comece com a Bíblia**, não com sistemas teológicos
-2. **Compare tudo com a Escritura** - seja o que for (este material incluído!)
-3. **O Espírito Santo te guia através da Palavra**, não independente dela
-4. **Nenhuma tradição, por mais antiga, substitui a autoridade da Bíblia**
-5. **Seja como os bereanos:** Atos 17:11 - *"Examinavam as Escrituras todos os dias para ver se tudo era assim mesmo."*
-
-**"Santifica-os na verdade; a tua palavra é a verdade."** (João 17:17)
 
 ---
 
@@ -424,11 +945,11 @@ _______________________________________________________________________________
 
 ---
 
-**Próxima aula:** A Doutrina de Deus - Conhecendo quem é o Deus que se revelou a nós!
+**Próxima aula:** A Trindade: Um Só Deus em Três Pessoas
 
 ---
 
-# AULA 2
+# AULA 5
 ## A TRINDADE: UM SÓ DEUS EM TRÊS PESSOAS
 
 ### OBJETIVO DA AULA
@@ -704,7 +1225,7 @@ _______________________________________________________________________________
 
 ---
 
-# AULA 3
+# AULA 6
 ## OS ATRIBUTOS DE DEUS: CONHECENDO O CARÁTER DE DEUS
 
 ### OBJETIVO DA AULA
@@ -1022,7 +1543,7 @@ _______________________________________________________________________________
 
 ---
 
-# AULA 4
+# AULA 7
 ## A CRIAÇÃO DO HOMEM: FEITOS À IMAGEM DE DEUS
 
 ### OBJETIVO DA AULA
@@ -1308,7 +1829,7 @@ _______________________________________________________________________________
 
 ---
 
-# AULA 5
+# AULA 8
 ## LIVRE-ARBÍTRIO E A QUEDA DO HOMEM
 
 ### OBJETIVO DA AULA
@@ -1598,7 +2119,7 @@ _______________________________________________________________________________
 
 ---
 
-# AULA 6
+# AULA 9
 ## A DOUTRINA DO PECADO: COMPREENDENDO O PROBLEMA
 
 ### OBJETIVO DA AULA
@@ -1917,7 +2438,7 @@ _______________________________________________________________________________
 
 ---
 
-# AULA 7
+# AULA 10
 ## JESUS CRISTO: PLENAMENTE DEUS E PLENAMENTE HOMEM
 
 ### OBJETIVO DA AULA
@@ -2265,7 +2786,7 @@ _______________________________________________________________________________
 
 ---
 
-# AULA 8
+# AULA 11
 ## JESUS CRISTO: HUMILHAÇÃO, EXALTAÇÃO E SEUS OFÍCIOS
 
 ### OBJETIVO DA AULA
@@ -2616,7 +3137,7 @@ _______________________________________________________________________________
 
 ---
 
-# AULA 9
+# AULA 12
 ## O ESPÍRITO SANTO: PESSOA E OBRA
 
 ### OBJETIVO DA AULA
@@ -2995,7 +3516,7 @@ _______________________________________________________________________________
 
 ---
 
-# AULA 10
+# AULA 13
 ## OS DONS E O FRUTO DO ESPÍRITO SANTO
 
 ### OBJETIVO DA AULA
@@ -3141,98 +3662,24 @@ Romanos 12:3: *"Não pensem de si mesmos além do que convém."*
 
 Há diferentes entendimentos entre cristãos sinceros sobre alguns dons:
 
-**POSIÇÃO BATISTA TRADICIONAL: CESSACIONISMO MODERADO**
-
-A maioria dos batistas tradicionais crê em **cessacionismo moderado** (também chamado cessacionismo parcial). Isso significa:
-
-**DONS QUE CESSARAM (Dons de Sinal):**
-- **Apostolado** (no sentido restrito - Doze + Paulo)
-- **Profecias revelatórias** (que adicionavam à Escritura)
-- **Línguas** como sinal aos judeus (1 Coríntios 14:21-22)
-- **Milagres apostólicos** de autenticação (2 Coríntios 12:12)
-
-**Por quê cessaram?**
-
-**1. Cânon fechado:** Apocalipse 22:18-19 - Não podemos adicionar à Escritura. Profecias revelatórias não são mais necessárias.
-
-**2. Fundamento estabelecido:** Efésios 2:20 - A igreja foi edificada sobre o **fundamento** dos apóstolos e profetas. Fundamento se coloca uma vez!
-
-**3. Propósito cumprido:** Hebreus 2:3-4 - Sinais e prodígios **confirmaram** a mensagem apostólica. Hoje temos a Palavra completa.
-
-**4. Exemplo histórico:** Os dons de sinal foram predominantemente da era apostólica. A história da igreja mostra declínio após os apóstolos.
-
-**DONS QUE CONTINUAM (Dons de Serviço):**
-- **Ensino** (Romanos 12:7)
-- **Liderança/Pastor** (Efésios 4:11)
-- **Serviço/Diácono** (Romanos 12:7)
-- **Exortação** (Romanos 12:8)
-- **Contribuição/Generosidade** (Romanos 12:8)
-- **Misericórdia** (Romanos 12:8)
-- **Evangelista** (Efésios 4:11)
-- **Sabedoria e conhecimento** (aplicados, não revelatórios)
-
-**Por quê continuam?**
-Esses dons edificam e servem a igreja em todas as épocas. São necessários até Cristo voltar!
-
----
-
-**VISÃO ALTERNATIVA: CONTINUÍSMO**
-
-Por respeito, apresentamos a visão continuísta:
+**Visão Cessacionista:**
+- Alguns dons (especialmente os "sinais" como línguas, profecias, milagres) cessaram após a era apostólica
+- Esses dons serviram para autenticar os apóstolos e estabelecer a igreja primitiva
+- Hoje temos a Bíblia completa, então não precisamos desses dons
 
 **Visão Continuísta:**
 - Todos os dons continuam disponíveis hoje
-- Nenhuma passagem bíblica afirma explicitamente que os dons cessaram
+- Nenhuma passagem bíblica afirma claramente que os dons cessaram
 - A igreja ainda precisa de todas as manifestações do Espírito
 - Devemos buscar os dons, mas com ordem e sob a autoridade das Escrituras
-- 1 Coríntios 13:8-10 refere-se à vinda de Cristo, não ao fechamento do cânon
 
----
+**O que ambos concordam:**
+- Todos os dons devem glorificar a Cristo
+- A Palavra de Deus é a autoridade final (nenhuma "profecia" pode contradizê-la)
+- Os dons devem edificar, não causar divisão
+- Precisamos do Espírito Santo capacitando a igreja hoje
 
-**PRINCÍPIOS EM QUE TODOS CONCORDAM:**
-
-Seja qual for sua posição, todos os cristãos fiéis concordam:
-
-**1. A Escritura é autoridade final:** Nenhuma "profecia" moderna pode contradizer ou adicionar à Bíblia
-
-**2. O cânon está fechado:** Apocalipse 22:18-19 - Não aceitamos novas revelações iguais à Escritura
-
-**3. Ordem e decência:** 1 Coríntios 14:40 - Tudo deve ser feito com ordem, não caos
-
-**4. Edificação, não exibição:** 1 Coríntios 14:12 - Dons são para edificar, não para autopromoção
-
-**5. Tudo deve glorificar a Cristo:** Não o Espírito Santo separado de Cristo, nem experiências em si mesmas
-
-**6. Cuidado com falsificações:** Nem toda manifestação sobrenatural vem de Deus (1 João 4:1)
-
-**7. Cautela com experiências subjetivas:** Testamos tudo pela Palavra objetiva de Deus
-
-**8. O Espírito capacita a igreja hoje:** Precisamos do poder do Espírito Santo em nossa geração!
-
----
-
-**APLICAÇÃO PRÁTICA DA POSIÇÃO BATISTA:**
-
-**1. Não buscamos novos "apóstolos"** com autoridade igual aos Doze
-
-**2. Não aceitamos "profecias"** que adicionem à Escritura ou tenham mesma autoridade que a Bíblia
-
-**3. Testamos tudo pela Palavra:** Atos 17:11 - Como os bereanos, examinamos tudo pelas Escrituras
-
-**4. Focamos nos dons de serviço:** Ensino, liderança, misericórdia, generosidade, evangelismo
-
-**5. Não somos anti-sobrenaturais:** Cremos em oração, cura (pela vontade de Deus), providência divina
-
-**6. Mantemos ordem no culto:** 1 Coríntios 14:40 - Cultos devem ser edificantes, ordeiros e centrados na Palavra
-
-**7. Dependemos do Espírito:** Não somos "cessacionistas práticos" que vivem como se o Espírito não existisse!
-
----
-
-**IMPORTANTE:** Esta não deve ser uma questão de divisão primária! Cristãos sinceros discordam respeitosamente sobre isso. A posição batista tradicional tende ao cessacionismo moderado, mas respeitamos irmãos que pensam diferente, desde que:
-- Mantenham a autoridade final da Escritura
-- Não aceitem revelações que contradigam a Bíblia
-- Busquem ordem e edificação
+**Importante:** Esta não deve ser uma questão de divisão! Cristãos sinceros discordam respeitosamente sobre isso.
 
 ---
 
@@ -3503,7 +3950,7 @@ _______________________________________________________________________________
 
 ---
 
-# AULA 11
+# AULA 14
 ## A DOUTRINA DA SALVAÇÃO - PARTE 1: OS CINCO PONTOS E O CHAMADO
 
 ### OBJETIVO DA AULA
@@ -3547,19 +3994,7 @@ A salvação tem três aspectos temporais:
 
 Na história da igreja, surgiram dois sistemas teológicos principais para explicar como a salvação funciona: **Calvinismo** (ou teologia reformada) e **Arminianismo**.
 
-**OBSERVAÇÃO IMPORTANTE - POSIÇÃO BATISTA:**
-
-Apresentamos esses dois sistemas teológicos para que você os conheça e compreenda as diferentes perspectivas cristãs sobre a salvação. **No entanto, como batistas, nossa autoridade final é sempre a Escritura, não sistemas teológicos**.
-
-- Não aderimos rigidamente a nenhum sistema como se fosse infalível
-- Testamos todo ensino pela Palavra de Deus
-- Onde a Bíblia fala claramente, falamos com confiança
-- Onde há mistério, mantemos humildade
-- **Nossa lealdade é à Escritura, não a rótulos teológicos**
-
-Dito isso, os batistas tradicionais geralmente se alinham mais com a posição reformada em soteriologia (doutrina da salvação), especialmente em pontos como depravação total, segurança eterna e soberania de Deus. Mas sempre com a Escritura como juiz final!
-
-**IMPORTANTE:** Ambos (calvinistas e arminianos) são cristãos sinceros que amam a Jesus e creem na Bíblia! As diferenças são sobre **como** Deus salva, não sobre **quem** salva (somente Cristo!). Podemos discordar com amor e respeito!
+**IMPORTANTE:** Ambos são cristãos sinceros que amam a Jesus e creem na Bíblia! As diferenças são sobre **como** Deus salva, não sobre **quem** salva (somente Cristo!). Podemos discordar com amor e respeito!
 
 #### COMPARAÇÃO DOS CINCO PONTOS
 
@@ -3848,7 +4283,7 @@ _______________________________________________________________________________
 
 ---
 
-# AULA 12
+# AULA 15
 ## A DOUTRINA DA SALVAÇÃO - PARTE 2: CONVERSÃO E UNIÃO COM CRISTO
 
 ### OBJETIVO DA AULA
@@ -4098,134 +4533,24 @@ Na glorificação, você será **totalmente** santo, sem pecado!
 
 Filipenses 1:6: *"Estou plenamente certo de que aquele que começou boa obra em vocês vai completá-la até o dia de Cristo Jesus."*
 
-**POSIÇÃO BATISTA TRADICIONAL: SEGURANÇA ETERNA**
+**DUAS PERSPECTIVAS:**
 
-Como batistas, cremos na **segurança eterna do crente genuíno**. Aquele que foi verdadeiramente salvo por Cristo **não pode perder sua salvação**. Esta é uma das doutrinas mais preciosas da fé cristã!
+**Visão Reformada - "Preservados por Deus":**
+- Ênfase: Deus **guarda** os Seus
+- João 10:28-29: *"Ninguém as pode arrebatar da minha mão"*
+- Deus garante que os verdadeiramente salvos perseverarão
+- Se alguém "cai", nunca foi verdadeiramente salvo (1 João 2:19)
 
-**FUNDAMENTOS BÍBLICOS DA SEGURANÇA ETERNA:**
+**Visão Arminiana - "Responsabilidade de Perseverar":**
+- Ênfase: Devemos **perseverar** na fé
+- Avisos bíblicos contra apostasia são reais (Hebreus 6:4-6)
+- Alguns creem que é possível perder a salvação; outros não
+- Devemos permanecer vigilantes e fiéis
 
-**A. PROMESSAS CLARAS DE CRISTO**
-
-João 10:28-29: *"Eu lhes dou a vida eterna, e elas jamais perecerão; ninguém as poderá arrebatar da minha mão. Meu Pai, que as deu para mim, é maior que todos; ninguém as pode arrebatar da mão de meu Pai."*
-
-- Jesus dá vida **eterna** (não temporária!)
-- Elas **jamais perecerão** (sem exceções!)
-- **Ninguém** pode arrebatar (nem você mesmo!)
-
-João 6:37,39: *"Todo aquele que o Pai me der virá a mim... esta é a vontade daquele que me enviou: que eu não perca nenhum dos que ele me deu."*
-
-Jesus promete **não perder nenhum** dos que o Pai lhe deu!
-
-**B. SELADOS PELO ESPÍRITO SANTO**
-
-Efésios 1:13-14: *"Tendo nele também crido, fostes selados com o Santo Espírito da promessa; o qual é o penhor da nossa herança."*
-
-Efésios 4:30: *"Não entristeçam o Espírito Santo de Deus, com o qual vocês foram selados para o dia da redenção."*
-
-Um selo indica:
-- **Propriedade:** Você pertence a Deus
-- **Segurança:** Protegido até o fim
-- **Garantia:** O Espírito é "penhor" (garantia) da salvação completa
-
-**C. NADA PODE NOS SEPARAR**
-
-Romanos 8:38-39: *"Pois estou convencido de que nem morte nem vida, nem anjos nem demônios, nem o presente nem o futuro, nem quaisquer poderes, nem altura nem profundidade, nem qualquer outra coisa na criação será capaz de nos separar do amor de Deus que está em Cristo Jesus, nosso Senhor."*
-
-Note: **"Nem qualquer outra coisa"** - isso inclui você mesmo! A salvação não depende de você mantê-la!
-
-**D. DEUS COMPLETA A OBRA**
-
-Filipenses 1:6: *"Aquele que começou boa obra em vocês vai completá-la até o dia de Cristo Jesus."*
-
-Deus **garante** completar o que começou! Ele não abandona Sua obra pela metade!
-
-**E. NÃO HÁ CONDENAÇÃO**
-
-Romanos 8:1: *"Portanto, agora já não há condenação para os que estão em Cristo Jesus."*
-
-Romanos 8:33-34: *"Quem fará alguma acusação contra os escolhidos de Deus? É Deus quem os justifica. Quem os condenará? Foi Cristo Jesus que morreu; e mais, que ressuscitou e está à direita de Deus, e também intercede por nós."*
-
-Se Deus justificou e Cristo intercede, quem pode condenar?
-
----
-
-**MAS E AS ADVERTÊNCIAS CONTRA APOSTASIA?**
-
-A Bíblia contém advertências sérias (Hebreus 6:4-6; 10:26-29). Como entendê-las?
-
-**RESPOSTA BATISTA:**
-
-**1. Professos vs. Possuidores**
-
-1 João 2:19: *"Eles saíram do nosso meio, mas na realidade não eram dos nossos, pois, se fossem dos nossos, teriam permanecido conosco; o fato de terem saído mostra que nenhum deles era dos nossos."*
-
-Quem "cai" e abandona totalmente a fé **nunca foi verdadeiramente salvo**! Eram professos, não possuidores.
-
-**2. Advertências são Meios de Perseverança**
-
-As advertências bíblicas são **instrumentos** que Deus usa para manter Seus eleitos no caminho! Elas não provam que podemos perder a salvação, mas são meios pelos quais Deus nos preserva.
-
-**3. Falsa Segurança vs. Verdadeira Segurança**
-
-Mateus 7:21-23: *"Nem todo aquele que me diz: 'Senhor, Senhor', entrará no Reino dos céus... Então lhes direi claramente: Nunca os conheci. Afastem-se de mim vocês, que praticam o mal!"*
-
-Há pessoas com **falsa segurança** - pensam que são salvas, mas nunca foram. Jesus diz: "**Nunca** os conheci" (não "conheci mas perderam").
-
-**4. Verdadeiros Crentes Produzem Fruto**
-
-Mateus 7:16-20: *"Pelos seus frutos vocês os reconhecerão."*
-
-João 15:2,5: Ramos genuínos na videira **produzem fruto**. Se não há fruto, nunca houve vida real!
-
----
-
-**VISÃO ALTERNATIVA (ARMINIANA)**
-
-Embora alguns cristãos sinceros discordem, apresentamos sua visão por respeito:
-
-**Visão Arminiana - "Possibilidade de Perder a Salvação":**
-- Alguns arminianos creem que é possível um crente verdadeiro **perder** a salvação por apostasia deliberada
-- Enfatizam avisos bíblicos contra apostasia como reais para crentes genuínos
-- Enfatizam responsabilidade humana de **perseverar** na fé
-- (Nota: Outros arminianos também creem em segurança eterna)
-
-**Textos enfatizados:** Hebreus 6:4-6; 10:26-29
-
-**Resposta batista:** Esses textos referem-se a professos falsos ou são advertências que Deus usa para guardar os verdadeiros crentes. A posição batista tradicional é a **segurança eterna**.
-
----
-
-**O QUE AMBOS CONCORDAM:**
-
-Independente da posição teológica, **todos** concordam que:
-
-- **Verdadeiros crentes produzirão fruto** (Mateus 7:16-20)
-- **Devemos nos esforçar na fé** (2 Pedro 1:10)
-- **Deus é fiel para nos guardar** (Judas 24)
-- **Devemos perseverar** até o fim (não como causa, mas como evidência de salvação real)
-- **Não devemos presumir** da graça de Deus para viver em pecado deliberado
-
----
-
-**APLICAÇÃO PRÁTICA:**
-
-**1. Segurança, não presunção:** A segurança eterna não é licença para pecar! Romanos 6:1-2: *"Que diremos então? Continuaremos pecando para que a graça aumente? De maneira nenhuma!"*
-
-**2. Exame próprio:** 2 Coríntios 13:5: *"Examinem-se para ver se vocês estão na fé."* Há fruto em sua vida? Amor a Deus? Desejo de obedecê-Lo?
-
-**3. Conforto nas lutas:** Quando você tropeça, não significa que perdeu a salvação! Deus está trabalhando em você (Filipenses 2:13).
-
-**4. Certeza inabalável:** Sua salvação não depende de você ser forte - depende de Cristo, que é Todo-Poderoso! (Judas 24)
-
----
-
-**CONCLUSÃO:**
-
-Como batistas, descansamos na maravilhosa verdade da **segurança eterna**. Uma vez genuinamente salvos por Cristo, somos guardados pelo poder de Deus até a redenção final! 
-
-Isso não nos torna complacentes, mas gratos! Não presumimos da graça, mas a celebramos! Não relaxamos na santidade, mas buscamos agradar Aquele que nos salvou tão completamente!
-
-**"Estou convencido de que aquele que começou boa obra em vocês vai completá-la até o dia de Cristo Jesus!"** (Filipenses 1:6)
+**AMBOS CONCORDAM:**
+- Verdadeiros crentes produzirão fruto (Mateus 7:16-20)
+- Devemos nos esforçar na fé (2 Pedro 1:10)
+- Deus é fiel para nos guardar (Judas 24)
 
 ---
 
@@ -4370,7 +4695,7 @@ _______________________________________________________________________________
 
 ---
 
-# AULA 13
+# AULA 16
 ## A DOUTRINA DAS ÚLTIMAS COISAS (ESCATOLOGIA)
 
 ### OBJETIVO DA AULA
@@ -4817,7 +5142,7 @@ _______________________________________________________________________________
 
 ---
 
-# AULA 14
+# AULA 17
 ## A DOUTRINA DA IGREJA - PARTE 1: NATUREZA, UNIDADE E FUNÇÕES
 
 ### OBJETIVO DA AULA
@@ -4885,19 +5210,6 @@ Características:
 - **Visível:** Pode ser vista e identificada
 - **Organizada:** Tem liderança, membros, estrutura
 - **Imperfeita:** Pode ter joio junto com trigo (Mateus 13:24-30)
-- **Autônoma:** Cada igreja local é independente e autogovernada sob Cristo
-
-**PRINCÍPIO BATISTA: AUTONOMIA DA IGREJA LOCAL**
-
-Como batistas, cremos firmemente na **autonomia da igreja local**. Isso significa:
-
-- Cada igreja local é **independente** e **autogovernada** sob a autoridade de Cristo
-- Não há hierarquia denominacional que controle ou governe a igreja local
-- Cada congregação é diretamente responsável perante Cristo, sua Cabeça
-- As igrejas podem cooperar voluntariamente (missões, etc.), mas sem perder autonomia
-- Nenhuma organização externa pode ditar doutrina ou prática à igreja local
-
-Isso não significa isolamento! Significa que **Cristo governa cada igreja diretamente**, não através de hierarquia humana.
 
 **AMBAS SÃO IMPORTANTES!**
 
@@ -4966,18 +5278,6 @@ A Igreja é o novo povo de Deus - cumprimento das promessas a Israel!
 **D. PERTENCEMOS A DEUS:** "Povo exclusivo de Deus" - Somos propriedade de Deus!
 
 **E. TEMOS MISSÃO:** "Para anunciar as grandezas" - Fomos salvos para testemunhar!
-
-**PRINCÍPIO BATISTA: MEMBRESIA REGENERADA**
-
-Como batistas, cremos no princípio da **membresia regenerada**. Isso significa que:
-
-- Somente pessoas **nascidas de novo** devem ser membros da igreja local
-- Membros devem fazer **profissão de fé** genuína em Cristo
-- Batismo precede membresia (crentes batizados)
-- Não há "membros nominais" ou "batizados na infância" - só crentes professos
-- Isso garante que decisões da igreja sejam tomadas por pessoas espirituais
-
-Claro, só Deus conhece os corações (podem haver professos falsos), mas buscamos uma igreja de crentes genuínos, não mistura de mundo e igreja.
 
 #### 2. O CORPO DE CRISTO
 
@@ -5237,7 +5537,7 @@ _______________________________________________________________________________
 
 ---
 
-# AULA 15
+# AULA 18
 ## A DOUTRINA DA IGREJA - PARTE 2: LIDERANÇA, GOVERNO E A GRANDE COMISSÃO
 
 ### OBJETIVO DA AULA
@@ -5427,98 +5727,15 @@ Cristãos sinceros discordam sobre como a igreja deve ser governada. Vejamos tr�
 
 **Argumento:** Sacerdócio de todos os crentes (1 Pedro 2:9), exemplos no NT de decisões congregacionais (Atos 6:3-5; 2 Coríntios 2:6)
 
-**ESTA É A FORMA TRADICIONAL BATISTA DE GOVERNO**
-
-Cremos que o governo congregacional reflete melhor o padrão do Novo Testamento pelos seguintes motivos:
-
-**A. SACERDÓCIO UNIVERSAL DOS CRENTES**
-
-1 Pedro 2:9: *"Vocês, porém, são geração eleita, sacerdócio real, nação santa, povo exclusivo de Deus."*
-
-Todos os crentes são sacerdotes diante de Deus! Não há hierarquia especial de clérigos. Isso implica que todos os membros regenerados têm responsabilidade nas decisões da igreja.
-
-**B. AUTONOMIA DA IGREJA LOCAL**
-
-Cada igreja local é autônoma (autogovernada) sob a autoridade de Cristo. Não há hierarquia denominacional que controle as igrejas locais. Cada congregação é diretamente responsável perante Cristo, sua Cabeça.
-
-**C. EXEMPLOS BÍBLICOS DE DECISÕES CONGREGACIONAIS**
-
-**Atos 6:1-6** - Escolha dos diáconos:
-*"Os Doze reuniram **toda a comunidade dos discípulos**... **Toda a comunidade** aprovou a proposta."*
-
-Note: Os apóstolos não escolheram sozinhos - convocaram **toda a congregação** para participar da decisão!
-
-**Atos 13:1-3** - Envio de missionários:
-A **igreja** de Antioquia (não apenas os líderes) enviou Paulo e Barnabé.
-
-**Atos 15:22** - Decisão sobre a circuncisão:
-*"Então os apóstolos e os presbíteros, **com toda a igreja**, decidiram..."*
-
-Decisões importantes envolviam **toda a igreja**, não apenas líderes!
-
-**2 Coríntios 2:6** - Disciplina eclesiástica:
-*"A punição que lhe foi imposta **pela maioria** é suficiente."*
-
-A disciplina foi aplicada pela **maioria** da congregação - decisão congregacional!
-
-**Mateus 18:17** - Processo de disciplina:
-*"Se ele se recusar a ouvi-los, conte à **igreja**."*
-
-Jesus não disse "conte aos líderes" ou "conte ao bispo". Disse: conte à **igreja** (congregação)!
-
-**D. PRINCÍPIOS BATISTAS FUNDAMENTAIS**
-
-**1. Separação Igreja-Estado:** Nenhum governo civil ou hierarquia eclesiástica deve controlar a igreja local. Só Cristo é o Cabeça!
-
-**2. Liberdade Religiosa:** Cada pessoa tem direito à liberdade de consciência perante Deus. A fé não pode ser imposta ou coagida pelo estado. Batistas historicamente lutaram pela liberdade religiosa para todos (não apenas para si mesmos).
-
-**3. Competência da Alma:** Cada pessoa é competente e responsável diante de Deus. Isso se reflete na participação dos membros nas decisões. Ninguém precisa de intermediário (padre, bispo, papa) entre si e Deus.
-
-**4. Membresia Regenerada:** Só crentes verdadeiros devem ser membros votantes, garantindo decisões espirituais.
-
-**E. COMO FUNCIONA O GOVERNO CONGREGACIONAL**
-
-Em uma igreja congregacional batista:
-
-- **Membros votam** em decisões importantes: chamada de pastores, disciplina, orçamento, compra de propriedades, etc.
-- **Pastores lideram** através do ensino e exemplo, mas **servem** a congregação (não dominam)
-- **Diáconos servem** nas necessidades práticas
-- **Cristo é o único Cabeça** - a congregação busca Sua vontade através da Palavra e oração
-- **Autonomia local** - cada igreja é independente, sem hierarquia externa
-
-**F. OBSERVAÇÃO IMPORTANTE**
-
-Governo congregacional **não é democracia secular**! É **teocracia** (governo de Deus) exercida através de uma congregação regenerada que busca a vontade de Cristo nas Escrituras.
-
-- Não é "maioria sempre tem razão"
-- É "busquemos juntos a vontade de Deus revelada na Sua Palavra"
-- Requer membros espirituais, orantes e conhecedores da Bíblia
-
----
-
-**CONCLUSÃO SOBRE GOVERNO**
-
-Enquanto respeitamos irmãos de outras tradições que praticam governo episcopal ou presbiteriano, cremos firmemente que o modelo congregacional reflete melhor o padrão do Novo Testamento e os princípios batistas fundamentais de:
-- **Autonomia da igreja local**
-- **Sacerdócio universal dos crentes**
-- **Soberania de Cristo** (não de hierarquia humana)
-- **Autoridade das Escrituras** (não de tradição eclesiástica)
-
-Cada igreja local, sob a Cabeça que é Cristo e guiada pelo Espírito Santo através da Palavra, tem capacidade e responsabilidade de tomar suas próprias decisões espirituais!
-
 **QUAL É O CORRETO?**
 
-Cristãos fiéis existem em todas essas estruturas, e devemos respeitá-los como irmãos em Cristo. 
+Cristãos fiéis existem em todas essas estruturas! O NT não prescreve um modelo único detalhado. O importante é:
 
-**No entanto, cremos que o governo congregacional é o mais fiel ao padrão bíblico**, pelos motivos apresentados acima. O Novo Testamento não prescreve detalhes completos de estrutura organizacional, mas os princípios e exemplos apontam claramente para a autonomia da igreja local e participação da congregação.
-
-O importante em qualquer estrutura é que:
-
-- **Cristo é a Cabeça** (Colossenses 1:18) - Nenhum sistema humano deve usurpar Sua autoridade
-- **Liderança qualificada** (1 Timóteo 3; Tito 1) - Líderes devem atender aos padrões bíblicos
-- **Submissão mútua** (Efésios 5:21) - Líderes e membros se submetem uns aos outros no Senhor
-- **Prestação de contas** (Hebreus 13:17) - Líderes prestam contas a Deus e à congregação
-- **Autoridade das Escrituras** - A Bíblia, não tradição ou hierarquia, é a autoridade final
+- **Cristo é a cabeça** (Colossenses 1:18)
+- **Liderança qualificada** (1 Timóteo 3; Tito 1)
+- **Submissão mútua** (Efésios 5:21)
+- **Prestação de contas** (Hebreus 13:17)
+- **Unidade no essencial, liberdade no secundário**
 
 ---
 
@@ -5617,86 +5834,7 @@ A missão é global! Todo povo, toda tribo, toda língua (Apocalipse 7:9)!
 
 **E. MEIOS:**
 
-**1. Batizando:** O batismo é parte essencial da Grande Comissão. Vejamos o que isso significa:
-
-##### O BATISMO CRISTÃO - A ORDENANÇA DA OBEDIÊNCIA
-
-**O QUE É O BATISMO?**
-
-O batismo é uma **ordenança** (não sacramento) instituída por Jesus Cristo, na qual o crente professo é imerso em água em nome do Pai, do Filho e do Espírito Santo, simbolizando sua união com Cristo em Sua morte, sepultamento e ressurreição.
-
-**QUEM DEVE SER BATIZADO?**
-
-**Somente crentes professos** - aqueles que já se arrependeram e creram em Cristo!
-
-Atos 2:38: *"Arrependam-se, e cada um de vocês seja batizado em nome de Jesus Cristo para perdão dos seus pecados."*
-
-Marcos 16:16: *"Quem crer e for batizado será salvo."*
-
-Note a ordem: **Primeiro crer, depois ser batizado**. Por isso, batistas não batizam crianças (pedobatismo), pois elas ainda não podem fazer profissão de fé genuína. O batismo é para quem já nasceu de novo!
-
-**EXEMPLOS BÍBLICOS:**
-
-- **O Eunuco** (Atos 8:36-38): Creu primeiro, depois foi batizado
-- **O Carcereiro** (Atos 16:30-33): Ele e sua casa creram, então foram batizados
-- **Os Samaritanos** (Atos 8:12): Creram na pregação de Filipe, então foram batizados
-
-**COMO DEVE SER O BATISMO?**
-
-Por **imersão completa** na água! A própria palavra grega "baptizo" significa "mergulhar, imergir".
-
-**Por que imersão?**
-
-**1. É o significado bíblico:** Romanos 6:3-4 descreve o batismo como ser **sepultado** com Cristo - isso requer imersão, não aspersão (borrifar) ou efusão (derramar)!
-
-**2. É o exemplo de Jesus:** Mateus 3:16 - Jesus **saiu da** água (havia entrado nela)
-
-**3. É a prática da igreja primitiva:** Atos 8:38-39 - Filipe e o eunuco **desceram à** água e **saíram da** água
-
-**O QUE O BATISMO SIMBOLIZA?**
-
-Romanos 6:3-4: *"Ou vocês não sabem que todos nós, que fomos batizados em Cristo Jesus, fomos batizados em sua morte? Portanto, fomos sepultados com ele na morte por meio do batismo, a fim de que, assim como Cristo foi ressuscitado dos mortos mediante a glória do Pai, também nós vivamos uma vida nova."*
-
-**O batismo simboliza:**
-
-**1. Morte para o pecado** (descida à água)  
-**2. Sepultamento da velha vida** (imersão)  
-**3. Ressurreição para nova vida** (saída da água)
-
-Colossenses 2:12: *"Isso aconteceu quando vocês foram sepultados com ele no batismo e com ele foram ressuscitados mediante a fé no poder de Deus que o ressuscitou dentre os mortos."*
-
-**O BATISMO SALVA?**
-
-**NÃO!** O batismo não salva ninguém!
-
-Efésios 2:8-9: *"Vocês são salvos pela graça, por meio da fé... não por obras."*
-
-O ladrão na cruz foi salvo sem ser batizado (Lucas 23:43)!
-
-**Mas o batismo é:**
-- **Ato de obediência** ao mandamento de Cristo
-- **Testemunho público** da salvação já recebida
-- **Identificação** com Cristo e Sua igreja
-- **Primeiro passo** de obediência na vida cristã
-
-**QUANDO SER BATIZADO?**
-
-Assim que possível após a conversão genuína! No Novo Testamento, não havia longas esperas - quem cria era batizado (Atos 8:36; 16:33).
-
-**IMPORTANTE - POSIÇÃO BATISTA:**
-
-Como batistas, cremos firmemente que:
-- O batismo é **somente para crentes** (não crianças)
-- O modo é **somente por imersão** (não aspersão)
-- É uma **ordenança** (não sacramento que confere graça)
-- É **símbolo e testemunho** (não meio de salvação)
-- Deve ser realizado em uma **igreja local** por autoridade da congregação
-
-Embora respeitemos irmãos de outras tradições que praticam diferente, cremos que o batismo de professos por imersão é o padrão claro do Novo Testamento.
-
-**Você já foi batizado segundo o mandamento de Cristo? Se você crê em Jesus mas ainda não foi batizado, obedeça hoje!**
-
----
+**1. Batizando:** Símbolo público de identificação com Cristo
 
 **2. Ensinando:** A obedecer tudo o que Jesus ordenou - não apenas informação, mas transformação!
 
