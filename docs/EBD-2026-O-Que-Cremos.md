@@ -182,14 +182,58 @@ Os batistas historicamente se distinguem por alguns princípios fundamentais:
 
 ### PARTE 2 — HISTÓRIA DA IBPV
 
-O conteúdo sobre a história específica da Igreja Batista Pedras Vivas será acrescentado pela liderança da igreja. Este espaço é reservado para essa história, que inclui:
-- As origens e a visão que deu origem à IBPV
-- Os fundadores e pioneiros
-- Momentos marcantes e transformadores
-- O crescimento e desenvolvimento até hoje
-- A visão para o futuro
+#### ORIGENS E PRIMEIRO ENCONTRO
 
-[Conteúdo a ser inserido pela liderança da IBPV]
+A Igreja Batista Pedras Vivas (IBPV) nasceu do esforço missionário da **Primeira Igreja Batista (PIB) de Curitiba**. Tudo começou com um encontro de oração em **agosto de 1995**, na Rua dos Cravos, no bairro Guanabara, na casa do Pr. Anselmo. 
+
+Naquele primeiro encontro, estavam presentes: Pr. Anselmo (pastor), sua esposa Alessandra, e membros como Eliane e Chamano, Helenita, Judite e Hilário. Era um começo humilde, mas cheio de fé e determinação de estabelecer uma obra batista naquela região.
+
+#### PRIMEIROS ANOS E EXPANSÃO (1995-1996)
+
+Em **setembro de 1995**, apenas um mês após o primeiro encontro, a congregação já se mudou para a **Rua Graciosa, esquina com a Rua Dr. Arthur Costa**, ainda no bairro Guanabara, e cresceu para mais de 20 membros.
+
+Um aspecto marcante nessa fase foi o **início do trabalho com surdos**, através do Coral de Surdos, com participação de Maria, Geovani e Adriana Friese. Os primeiros **batismos de surdos ocorreram em 1996**, demonstrando o compromisso da igreja em alcançar todas as pessoas.
+
+Em **1996**, o Pr. Paschoal assume e a congregação se muda para a **Rua Barbosa Rodrigues**, também em Guanabara. Nessa fase, surge o ministério de **Atletas de Cristo**, com os primeiros atletas sendo Evandro, Luizinho, Marcos Paulo, Alciney, Daniel Tenório, Luís Fernando e Izidoro, que também receberam os primeiros batismos.
+
+#### ORGANIZAÇÃO FORMAL E CONSOLIDAÇÃO (1998-1999)
+
+Em **1998**, a IBPV realiza sua terceira mudança, desta vez para a **Rua Jurueba, em Guanabara** (endereço que permanece até hoje). Nessa fase, a congregação comprou dois lotes e construiu um prédio pré-moldado, demonstrando crescimento e consolidação.
+
+O momento marcante chegou em **12 de junho de 1999**, quando a Igreja Batista Pedras Vivas foi **oficialmente organizada como Igreja Batista independente**. O Pr. Paschoal Piragini Júnior, da PIB Curitiba, presidiu a organização. Nessa ocasião, o Pr. Anselmo retornou à PIB Curitiba, e o **Pr. César Augusto Corsete** tomou posse como pastor da IBPV.
+
+#### CRESCIMENTO E EXPANSÃO (2000-2010)
+
+A década de 2000 foi marcada pelo crescimento da obra. Em **2005**, foi inaugurado o **prédio de Educação Religiosa**, possibilitando maior estrutura para as aulas da Escola Bíblica Dinâmica (EBD) e ministérios.
+
+O trabalho pastoral continuou sob a liderança do **Pr. César Augusto Corsete** com o apoio de pastores auxiliares. Durante essa fase, a IBPV consolidou sua presença no bairro, expandindo seus ministérios geracionais e de serviço.
+
+Em **2010**, o Pr. José Carlos de Souza assume como pastor. Um ano depois, em **02 de julho de 2011**, o **Pr. Carlos Alexandre de Souza Murtha** toma posse, trazendo renovado dinamismo à liderança pastoral.
+
+#### PRESENTE E VISÃO FUTURA (2011-HOJE)
+
+Em **2013**, o **Pr. Rodrigo de Campos Viana** foi designado como pastor de Jovens e auxiliar, reforçando o trabalho com a geração mais jovem.
+
+Além da congregação central no bairro Guanabara, a IBPV expandiu sua missão com iniciativas importantes:
+
+- **Comunidade Batista Esperança** - um ministério missionário junto a comunidades em situação de vulnerabilidade
+- **Igreja Batista no Morro do Meio** - uma congregação fruto do trabalho missionário, que foi oficialmente organizada em **24 de novembro de 2018**, com o **Pr. Jason Costa** como pastor
+
+#### COMPROMISSO COM MISSÕES GLOBAIS
+
+Além do trabalho local, a IBPV mantém compromisso com missões globais, tendo enviado pastores e missionários para:
+
+- **Pr. Klaus Peter Friese** – trabalhou na revitalização da Igreja Batista São Francisco do Sul (2005-2009)
+- **Pr. Juliano Marques Sales** – pastor dos Surdos (falecido em 2012, deixou legado de amor pelos surdos)
+- **Pr. Jorge Tejada e esposa Dulceli** – enviados a Cabo Verde e República Dominicana (2001-2010) em parceria com a PIB Curitiba
+- **Pr. Maicow e Adriana Silva Andrade** – missionários na China (2011)
+- **Diversos missionários** trabalhando no Morro do Meio junto com o Pr. Jason Costa
+
+#### NOSSA IDENTIDADE
+
+A IBPV recebeu esse nome baseando-se em **1 Pedro 2:5**: *"Vós também, quais pedras vivas, sois edificados como casa espiritual para serdes sacerdócio santo, a fim de oferecerdes sacrifícios espirituais, aceitáveis a Deus por Jesus Cristo."*
+
+Esse nome reflete nossa identidade: somos pedras vivas, continuamente edificadas por Deus, servindo como sacerdócio que oferece sacrifícios espirituais. Nesse mais de 25 anos de história, pudemos ver a mão de Deus nos guiando, nos protegendo e nos capacitando para cumprir nossa missão de amar a Deus, amar as pessoas e fazer discípulos.
 
 ---
 
