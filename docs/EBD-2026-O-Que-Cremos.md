@@ -1,4 +1,29 @@
 # O QUE CREMOS
+## FUNDAMENTOS DOUTRINÁRIOS DA FÉ CRISTÃ
+
+---
+
+![CAPA_APOSTILA](apostila_cover)
+
+**Igreja Batista Pedras Vivas**
+
+**2026**
+
+---
+
+***
+
+**APOSTILA DE ESTUDOS**
+
+**Escola Bíblica Dinâmica**
+
+18 Aulas sobre as Doutrinas Fundamentais da Fé Cristã
+
+***
+
+---
+
+# FUNDAMENTOS DOUTRINÁRIOS DA FÉ CRISTÃ
 ## Apostila de Estudos - Escola Bíblica Dinâmica
 ### Igreja Batista Pedras Vivas - 2026
 
@@ -24,9 +49,23 @@ Que o Espírito Santo nos guie em todo conhecimento da verdade!
 ## ÍNDICE DAS AULAS
 
 ### NOSSA HISTÓRIA E IDENTIDADE
-**AULA 1** - Nossa História — A Denominação e a IBPV
-**AULA 2** - Como Nos Organizamos — Missão, Visão, Valores e Estrutura
+**AULA 1** - Nossa História
+- Breve panorama da história da Igreja Batista Pedras Vivas
+- Origem e raízes do movimento batista
+- Relevância da Reforma Protestante
+- Primeiras igrejas batistas no mundo e no Brasil
+- Características marcantes dos batistas (princípios fundamentais)
+- Nossa identidade como igreja local
+
+**AULA 2** - Como Nos Organizamos 
+- Missão, Visão, Valores e Estrutura
+
 **AULA 3** - Como Crescemos Espiritualmente
+- O que é crescimento espiritual?
+- Práticas espirituais: oração, leitura bíblica, comunhão e serviço
+- Discipulado e acompanhamento espiritual
+- O papel do Espírito Santo no processo de crescimento
+- Frutos do crescimento espiritual
 
 ### INTRODUÇÃO BÍBLICA
 **AULA 4** - A Palavra de Deus: Nosso Fundamento
@@ -194,11 +233,11 @@ Em **setembro de 1995**, apenas um mês após o primeiro encontro, a congregaç�
 
 Um aspecto marcante nessa fase foi o **início do trabalho com surdos**, através do Coral de Surdos, com participação de Maria, Geovani e Adriana Friese. Os primeiros **batismos de surdos ocorreram em 1996**, demonstrando o compromisso da igreja em alcançar todas as pessoas.
 
-Em **1996**, o Pr. Paschoal assume e a congregação se muda para a **Rua Barbosa Rodrigues**, também em Guanabara. Nessa fase, surge o ministério de **Atletas de Cristo**, com os primeiros atletas sendo Evandro, Luizinho, Marcos Paulo, Alciney, Daniel Tenório, Luís Fernando e Izidoro, que também receberam os primeiros batismos.
+Em **1996**, o Pr. Paschoal assume e a congregação se muda para a **Rua Barbosa Rodrigues**, também no Guanabara. Nessa fase, surge o ministério de **Atletas de Cristo**, com os primeiros atletas sendo Evandro, Luizinho, Marcos Paulo, Alciney, Daniel Tenório, Luís Fernando e Izidoro, que também receberam os primeiros batismos.
 
 #### ORGANIZAÇÃO FORMAL E CONSOLIDAÇÃO (1998-1999)
 
-Em **1998**, a IBPV realiza sua terceira mudança, desta vez para a **Rua Jurueba, em Guanabara** (endereço que permanece até hoje). Nessa fase, a congregação comprou dois lotes e construiu um prédio pré-moldado, demonstrando crescimento e consolidação.
+Em **1998**, a IBPV realiza sua terceira mudança, desta vez para a **Rua Jurueba, no Guanabara** (endereço que permanece até hoje). Nessa fase, a congregação comprou dois lotes e construiu um prédio pré-moldado, demonstrando crescimento e consolidação.
 
 O momento marcante chegou em **12 de junho de 1999**, quando a Igreja Batista Pedras Vivas foi **oficialmente organizada como Igreja Batista independente**. O Pr. Paschoal Piragini Júnior, da PIB Curitiba, presidiu a organização. Nessa ocasião, o Pr. Anselmo retornou à PIB Curitiba, e o **Pr. César Augusto Corsete** tomou posse como pastor da IBPV.
 
@@ -419,8 +458,6 @@ A Assembleia delibera sobre questões como: eleição de líderes, aprovação d
 A administração da Igreja será exercida por um Conselho Diretor composto de um número ilimitado de membros dentre os quais serão indicados um vice-presidente, dois secretários e dois tesoureiros, membros civilmente capazes, que não serão remunerados pelos exercícios dessas funções.
 
 Os componentes do Conselho Diretor serão indicados pelo presidente da igreja, que será sempre o pastor, cuja indicação deverá ser homologada pela igreja em assembleia extraordinária. Eles terão mandato por um período de dois anos, com possibilidade de renovação.
-
-[Detalhes do Conselho Diretor da IBPV — a ser inserido]
 
 #### 3. PGM — PEQUENO GRUPO MULTIPLICADOR
 
@@ -648,6 +685,8 @@ Além do evangelismo local e pessoal, Deus chama Sua Igreja a alcançar povos qu
 
 *"Mas receberão poder quando o Espírito Santo descer sobre vocês, e serão minhas testemunhas em Jerusalém, em toda a Judeia e Samaria, e até os confins da terra." (Atos 1:8)*
 
+*"Ainda tenho outras ovelhas que não são deste aprisco. É necessário que eu as conduza também; elas ouvirão a minha voz, e haverá um só rebanho e um só pastor." (João 10:16)*
+
 Todos os cristãos são chamados a participar das missões, mesmo que não sejam missionários de tempo integral:
 - **Orando:** intercedendo pelos missionários e pelos povos não-alcançados
 - **Ofertando:** sustentando financeiramente o trabalho missionário
@@ -772,6 +811,27 @@ _______________________________________________________________________________
 
 # AULA 4
 ## A PALAVRA DE DEUS: NOSSO FUNDAMENTO
+### POR QUE A TEOLOGIA É IMPORTANTE?
+
+Muitas pessoas podem pensar que “teologia” é algo distante da vida prática dos cristãos, um estudo complicado reservado apenas para pastores ou estudiosos. Teologia, em sua definição mais simples, é o estudo sobre Deus — sobre quem Deus é, o que Ele faz e o que Ele quer de nós. A verdade é que, consciente ou inconscientemente, todos nós nutrimos pensamentos sobre Deus, sobre o porquê de existirmos e sobre o sentido da vida. Portanto, todos fazemos teologia, quer gostemos disso ou não.
+
+A pergunta principal não é *se* vamos fazer teologia, mas *que tipo* de teologia vamos fazer: será uma teologia fiel à revelação de Deus na Bíblia, ou baseada apenas em opiniões, tradições ou sentimentos?
+
+Estudar teologia é importante porque determina a maneira como enxergamos Deus, o mundo e a nós mesmos. Impacta nossas decisões, nossos relacionamentos, nossa esperança e propósito. Ter uma boa teologia é como ter bons óculos: ela nos permite ver com mais clareza quem Deus realmente é e qual é o nosso papel em sua história.
+
+Aprender sobre Deus não deve ser encarado como um exercício frio ou apenas intelectual. O verdadeiro conhecimento de Deus nos conduz à adoração, à confiança e à obediência. Uma teologia sadia aquece o coração, desafia a mente e transforma a vida.
+
+#### Um grande alerta de Charles Spurgeon
+
+**No início do livro "O Conhecimento de Deus" de J. I. Packer, há uma citação marcante de Charles Spurgeon ressaltando a centralidade do conhecimento de Deus em nossa caminhada:**
+
+*“O estudo adequado da humanidade é o homem. O estudo apropriado do povo eleito de Deus é Deus. A ciência mais elevada, a especulação mais sublime, a filosofia mais poderosa que pode ocupar a atenção de um filho de Deus é o nome, a natureza, a pessoa, a obra e a existência do grande Deus a quem ele chama de Pai.
+
+Há algo extremamente melhorador na contemplação da Divindade. É um assunto tão vasto que todos os nossos pensamentos se perdem em sua imensidão; tão profundo que nosso orgulho se afoga em sua infinitude. Outros assuntos podemos abranger e dominar; neles sentimos uma espécie de satisfação própria e seguimos nosso caminho com o pensamento: ‘Eis que sou sábio’. Mas quando chegamos a esta ciência-mestra, descobrindo que nossa linha de medir não alcança sua profundidade e que o olhar de águia não consegue ver sua altura, afastamo-nos com o pensamento: ‘Sou apenas de ontem e nada sei’.
+
+Nenhum assunto de contemplação tende mais a humilhar a mente do que pensamentos sobre Deus.”*
+
+---
 
 ### OBJETIVO DA AULA
 Compreender como Deus se revela à humanidade através da criação e especialmente através da Sua Palavra escrita, a Bíblia, e por que podemos confiar plenamente nela como fundamento da nossa fé.
@@ -1397,11 +1457,19 @@ Leia Atos 17:24-25: *"O Deus que fez o mundo e tudo o que nele há... não é se
 
 **Isso significa:** Deus não precisa de você, mas Ele te ama e te escolheu! Isso torna Seu amor ainda mais maravilhoso!
 
+#### 8. DEUS É SIMPLES (INCOMPOSTO; NÃO POSSUI PARTES)
+
+O atributo chamado "simplicidade divina" significa que Deus não é composto de partes. Ele é um ser uno, indivisível — sua essência não pode ser separada em componentes ou partes.
+
+Leia Deuteronômio 6:4: *"Ouve, Israel, o Senhor nosso Deus é o único Senhor."*
+
+**Isso significa:** Todos os atributos de Deus existem juntos Nele, de forma perfeita e inseparável. Ele não é uma soma de características; tudo o que Deus é, Ele é completamente, sempre.
+
 ---
 
 ### ATRIBUTOS COMUNICÁVEIS (DEUS COMPARTILHA CONOSCO)
 
-#### 8. DEUS É AMOR
+#### 9. DEUS É AMOR
 
 A própria natureza de Deus é amor!
 
@@ -1414,7 +1482,7 @@ O amor de Deus é:
 
 **Isso significa:** Você é amado! Não importa o que você fez, Deus te ama com amor eterno!
 
-#### 9. DEUS É SANTO
+#### 10. DEUS É SANTO
 
 Santidade significa que Deus é moralmente perfeito, puro e separado do pecado.
 
@@ -1422,7 +1490,7 @@ Leia 1 Pedro 1:15-16: *"Mas, assim como é santo aquele que os chamou, sejam san
 
 **Isso significa:** Deus não tolera o pecado. Ele é puro, perfeito e justo. E Ele nos chama para sermos santos como Ele é santo!
 
-#### 10. DEUS É JUSTO
+#### 11. DEUS É JUSTO
 
 Deus sempre faz o que é certo. Ele é perfeitamente justo em todos os Seus julgamentos.
 
@@ -1430,7 +1498,7 @@ Leia Deuteronômio 32:4: *"Ele é a Rocha; suas obras são perfeitas, e todos os
 
 **Isso significa:** Você pode confiar que Deus sempre fará o que é certo, mesmo quando não entendemos. Ele é o Juiz perfeito!
 
-#### 11. DEUS É MISERICORDIOSO E COMPASSIVO
+#### 12. DEUS É MISERICORDIOSO E COMPASSIVO
 
 Deus é lento para se irar e rico em misericórdia!
 
@@ -1438,7 +1506,7 @@ Leia Êxodo 34:6: *"O SENHOR, o SENHOR, Deus compassivo e misericordioso, pacien
 
 **Isso significa:** Deus não nos trata como merecemos! Ele tem compaixão de nós e nos perdoa quando nos arrependemos!
 
-#### 12. DEUS É FIEL
+#### 13. DEUS É FIEL
 
 Deus sempre cumpre Suas promessas. Ele nunca mente, nunca falha!
 
@@ -1446,7 +1514,7 @@ Leia 2 Timóteo 2:13: *"Se somos infiéis, ele permanece fiel, pois não pode ne
 
 **Isso significa:** Todas as promessas de Deus são verdadeiras! Você pode descansar nelas!
 
-#### 13. DEUS É SÁBIO
+#### 14. DEUS É SÁBIO
 
 Deus age com sabedoria perfeita em tudo o que faz!
 
