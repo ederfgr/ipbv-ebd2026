@@ -3657,6 +3657,162 @@ _______________________________________________________________________________
 
 ---
 
+### PARTE 3: O BATISMO COM O ESPÍRITO SANTO
+
+Esta é uma das doutrinas mais debatidas no cristianismo contemporâneo e merece atenção cuidadosa. Vamos examinar o que a Bíblia ensina, apresentar as posições principais e ancorar nossa conclusão na tradição batista histórica e reformada.
+
+---
+
+#### 1. OS TEXTOS CENTRAIS
+
+Atos 1:5: *"Pois João batizou com água, mas daqui a alguns dias vocês serão batizados com o Espírito Santo."*
+
+João 1:33: *"Aquele sobre quem você vir o Espírito descer e permanecer é o que batiza com o Espírito Santo."*
+
+1 Coríntios 12:13: *"Pois em um só Espírito todos nós fomos batizados em um corpo — judeus ou gregos, escravos ou livres — e a todos nós foi dado beber de um só Espírito."*
+
+Efésios 1:13: *"Tendo nele também crido, fostes selados com o Santo Espírito da promessa."*
+
+Efésios 5:18: *"...antes, enchei-vos do Espírito."*
+
+---
+
+#### 2. DOIS TERMOS DIFERENTES NA BÍBLIA
+
+Antes de qualquer posição teológica, é essencial distinguir dois termos que o Novo Testamento usa:
+
+**"Batizado com/no Espírito Santo"**
+- Linguagem que aparece em Mateus 3:11, Marcos 1:8, Lucas 3:16, João 1:33, Atos 1:5 e 1 Coríntios 12:13
+- Aponta para a **obra de incorporação** do crente ao corpo de Cristo
+
+**"Cheio do Espírito Santo"**
+- Linguagem de Atos e Efésios 5:18
+- Aponta para **experiências de plenitude** — poder, coragem, adoração — que podem ocorrer múltiplas vezes
+
+Confundir esses dois termos é a raiz de grande parte do debate.
+
+---
+
+#### 3. A POSIÇÃO BATISTA REFORMADA HISTÓRICA
+
+**O fundamento:**
+
+A tradição batista histórica, fundamentada na teologia reformada, ensina que o **batismo com o Espírito Santo ocorre no momento da conversão e regeneração**, sendo a obra pela qual o crente é unido a Cristo e incorporado ao Seu corpo.
+
+**Por que é inseparável da conversão?**
+
+**A. 1 Coríntios 12:13 não deixa exceção:**
+
+*"Em um só Espírito todos nós fomos batizados em um corpo."*
+
+Paulo está falando para toda a igreja em Corinto — com todos os seus problemas! — e diz que **todos** foram batizados em um só Espírito. Não diz "os mais espirituais" ou "os que buscaram mais". Todos.
+
+**B. Romanos 8:9 é conclusivo:**
+
+*"Se alguém não tem o Espírito de Cristo, esse tal não é dele."*
+
+Quem ainda não "recebeu" o batismo do Espírito (no sentido pentecostal), segundo esse texto, ainda não pertence a Cristo. Mas a Bíblia é clara: todo crente verdadeiro pertence a Cristo. Logo, todo crente verdadeiro tem o Espírito.
+
+**C. Efésios 1:13 amarra a sequência:**
+
+*"Tendo nele também crido, fostes selados com o Santo Espírito."*
+
+O selar pelo Espírito ocorre **ao crer** — não depois, não numa segunda etapa.
+
+**D. Pentecostes foi um evento único na história da redenção:**
+
+Atos 2 não é o modelo individual repetível — é o cumprimento da promessa de Joel 2 e a inauguração da nova era do Espírito. Assim como a morte e ressurreição de Cristo foram eventos únicos, Pentecostes foi o batismo **corporativo e inaugural** da Igreja. Não se repete individualmente da mesma forma.
+
+**Em resumo:** O batismo com o Espírito Santo é o que acontece quando você nasce de novo. Não é uma segunda etapa. Não exige sensação especial nem sinal visível. É a obra invisível e soberana pela qual Deus une o pecador arrependido a Cristo e ao Seu povo.
+
+---
+
+#### 4. A POSIÇÃO PENTECOSTAL
+
+A teologia pentecostal clássica (surgida no início do século XX, especialmente a partir do Avivamento de Azusa Street, em 1906) entende o batismo com o Espírito Santo de forma diferente:
+
+**O que ensinam:**
+
+- O batismo com o Espírito é uma **experiência separada e posterior** à conversão.
+- Ele é um **revestimento de poder para serviço e testemunho** (Atos 1:8).
+- A **evidência inicial** desta experiência é falar em **outras línguas** (glossolalia), conforme Atos 2:4; 10:46; 19:6.
+- Todo cristão deve buscá-lo ativamente; não ocorre automaticamente na salvação.
+
+**Os textos usados:**
+
+- **Atos 8:12-17:** Os samaritanos creram e foram batizados, mas o Espírito só veio quando Pedro e João chegaram e impuseram as mãos.
+- **Atos 10:44-46:** Cornélio recebeu o Espírito enquanto Pedro pregava, acompanhado de línguas.
+- **Atos 19:1-6:** Os discípulos de Éfeso, após crerem, receberam o Espírito com a imposição de mãos de Paulo e falaram em línguas.
+
+Esta posição é mantida com sinceridade por milhões de cristãos ao redor do mundo e merece respeito.
+
+---
+
+#### 5. AVALIAÇÃO BÍBLICA DA POSIÇÃO PENTECOSTAL
+
+Apresentamos com respeito as seguintes observações que levam muitos estudiosos a concluir que a interpretação pentecostal não sustenta o peso da exegese bíblica:
+
+**A. Atos narra história, não prescreve normas universais**
+
+Os episódios de Samaria, Cornélio e Éfeso são **narrativas históricas** em um livro de transição — o livro que registra como o Espírito foi sendo derramado progressivamente sobre judeus (At 2), samaritanos (At 8), gentios (At 10) e discípulos incompletos de João Batista (At 19). Cada caso tem contexto único e teológico próprio:
+
+- **Samaria (At 8):** Os samaritanos eram rivais históricos dos judeus. O atraso do Espírito garantiu que os líderes apostólicos (Pedro e João) validassem a unidade da nova comunidade — para que não houvesse uma "igreja samaritana" separada.
+- **Cornélio (At 10):** O derramamento do Espírito com línguas convenceu os judeus presentes de que Deus também salvava gentios. Era prova necessária para um momento histórico irrepetível.
+- **Éfeso (At 19):** Esses "discípulos" mal conheciam Jesus — só conheciam o batismo de João. Eram essencialmente pré-cristãos, não cristãos que faltava receber uma "segunda etapa".
+
+Se esses episódios fossem o padrão, esperaríamos que **todas as conversões em Atos** seguissem essa sequência — mas não seguem. Na maioria (At 2:41; 8:36-39; 16:14-15; 16:30-34), a conversão e o recebimento do Espírito são simultâneos ou inseparáveis.
+
+**B. 1 Coríntios 12:13 é uma afirmação universal sem exceção**
+
+Paulo escreve para uma igreja com problemas sérios — divisões, imoralidade, abuso dos dons. E ainda assim diz: *"todos nós fomos batizados em um só Espírito em um corpo"*. Se o batismo no Espírito fosse uma segunda etapa para maduros, Paulo certamente não usaria "todos" para incluir os coríntios problemáticos.
+
+**C. Romanos 8:9 fecha a questão doutrinariamente**
+
+*"Se alguém não tem o Espírito de Cristo, esse tal não é dele."*
+
+Não há categoria bíblica de "cristão sem o Espírito". Se alguém tem o Espírito, já foi "batizado" nEle. Se não tem, não é cristão ainda.
+
+**D. 1 Coríntios 12:30 desfaz a tese das línguas como evidência universal**
+
+Paulo pergunta retoricamente: *"Nem todos falam em línguas, falam?"* — esperando a resposta: não, nem todos.
+
+Mas se o batismo no Espírito fosse uma segunda etapa experimentada por todos e a evidência fosse línguas, o que dizer dos que creram e nunca falaram em línguas? Segundo Romanos 8:9, eles pertenceriam a Cristo. Segundo 1 Coríntios 12:13, foram batizados em um só Espírito. Segundo 1 Coríntios 12:30, podem não falar em línguas — e tudo isso é completamente consistente.
+
+**E. A sequência de Efésios 1:13 é cronologicamente clara**
+
+"**Tendo crido**, fostes selados com o Espírito" — o selar ocorre **ao crer**, não em outro momento posterior.
+
+---
+
+#### 6. SER CHEIO DO ESPÍRITO: A EXORTAÇÃO PARA TODOS
+
+Reconhecendo que o batismo com o Espírito ocorre na conversão, a Bíblia ainda nos ordena algo mais:
+
+Efésios 5:18: *"...enchei-vos do Espírito."*
+
+O verbo grego está no **presente contínuo e no imperativo plural**: "estejam continuamente sendo cheios". É uma ordem para toda a vida cristã. Não é uma experiência única, mas uma **plenitude renovável**.
+
+- **Atos 4:31:** Os mesmos discípulos de Pentecostes foram **novamente cheios** do Espírito para falar com ousadia.
+- **Atos 13:52:** Os discípulos eram continuamente cheios do Espírito e de alegria.
+
+**O crente batista reformado:**
+
+- **Já foi batizado** com o Espírito na conversão (obra consumada, não repetível)
+- **Deve buscar ser cheio** do Espírito continuamente (dependência diária)
+- **Evidencia** essa plenitude pelo fruto (Gl 5:22-23), pelo testemunho (At 1:8) e pelo exercício dos dons em amor (1Co 12-13)
+
+---
+
+#### 7. DUAS VERDADES PARA GUARDAR
+
+**1. Se você é cristão, o Espírito já habita em você.**
+Não espere por um segundo evento. Não duvide porque não teve uma experiência dramática. *"Não sabem que o corpo de vocês é santuário do Espírito Santo que habita em vocês?"* (1Co 6:19)
+
+**2. Busque a plenitude do Espírito todos os dias.**
+Não fique satisfeito com uma vida cristã morna. *"Enchei-vos do Espírito."* (Ef 5:18). Ore, obedece, permaneça em Cristo, e o Espírito te capacitará para viver e testemunhar.
+
+---
+
 **Próxima aula:** A Doutrina do Espírito Santo - Parte 2: Dons e Fruto
 
 ---
@@ -5951,6 +6107,144 @@ A igreja deve usar os recursos com:
 
 ---
 
+### PARTE 3: AS ORDENANÇAS DA IGREJA - BATISMO E CEIA DO SENHOR
+
+A Igreja pratica duas **ordenanças** (ou **sacramentos**, conforme a tradição católica e protestante histórica) instituídas por Cristo: o **Batismo** e a **Ceia do Senhor**.
+
+Na visão batista tradicional reformada, estas são **símbolos** e **memórias** da obra redentora de Cristo, não meios de salvação ou transformadores de graça.
+
+#### 1. O BATISMO
+
+**O QUE É:**
+
+Batismo é a **imersão** de um crente em água, como símbolo público de identificação com Cristo em Sua morte, sepultamento e ressurreição (Romanos 6:3-4).
+
+**QUEM DEVE SER BATIZADO:**
+
+Na tradição batista reformada, apenas **crentes** - aqueles que confessaram fé pessoal em Jesus Cristo!
+
+Atos 2:38: *"Pedro respondeu: 'Cada um de vocês deve arrepender-se e ser batizado em nome de Jesus Cristo para perdão de seus pecados.'"*
+
+Atos 16:31-33: O carcereiro filipense e sua família foram batizados **depois de crer** em Jesus!
+
+**OBSERVAÇÃO IMPORTANTE:** O batismo de crentes (e não de bebês) é chamado **"batismo de crente"** ou **"credobatismo"** - um princípio distintivo do batismo histórico!
+
+**COMO É REALIZADO:**
+
+A palavra grega **"baptizo"** significa **"imergir"** ou **"mergulhar"**.
+
+Romanos 6:3-4: *"Ou vocês não sabem que todos nós que fomos batizados em Cristo Jesus fomos batizados em sua morte? Portanto, fomos sepultados com ele pelo batismo... para que, assim como Cristo foi ressurreto dos mortos mediante a glória do Pai, também nós vivamos uma vida nova."*
+
+**Imersão total** melhor representa:
+- **Morte** com Cristo (ser imerso = morte)
+- **Sepultamento** (estar debaixo da água)
+- **Ressurreição** (sair da água = nova vida)
+
+**O QUE O BATISMO SIGNIFICA:**
+
+**A. Identificação com a morte de Cristo:** Morremos para o pecado
+
+**B. Enterramento da velha vida:** O pecado é deixado para trás
+
+**C. Ressurreição para nova vida:** Começamos de novo em Cristo
+
+**D. Públicopromessa:** Declaramos publicamente nossa fé em Jesus
+
+**O QUE O BATISMO NÃO É:**
+
+- **Não salva:** Salvação é somente pela fé em Cristo (Efésios 2:8-9)
+- **Não regenera:** Não nos torna filhos de Deus (que é obra do Espírito Santo)
+- **Não é obrigatório:** Não há salvação sem batismo, mas é uma **ordenança** (obediência após a salvação)
+- **Não é automático:** Requer confissão de fé pessoal
+
+**BATISMO NA TRADIÇÃO BATISTA REFORMADA:**
+
+Os batistas entendem o batismo como:
+- **Obediência** ao mandamento de Cristo (Mateus 28:19-20)
+- **Sinal visível** de uma realidade invisível (a fé pessoal em Cristo)
+- **Compromisso público** com Jesus
+- **Ato de discipulado** (primeiro passo após conversão)
+
+#### 2. A CEIA DO SENHOR
+
+**O QUE É:**
+
+A Ceia do Senhor é a **refeição memorial** instituída por Cristo, na qual comemos pão e bebemos vinho (ou suco) em memória de Sua morte redentora até que Ele retorne.
+
+**INSTITUIÇÃO:**
+
+1 Coríntios 11:23-25: *"Pois recebi do Senhor o que também lhes transmiti: que o Senhor Jesus, na noite em que foi traído, tomou pão e, depois de dar graças, o partiu e disse: 'Isto é o meu corpo, que é por vocês; façam isto em memória de mim.' Da mesma forma, depois de cear, tomou o cálice e disse: 'Este cálice é a nova aliança no meu sangue; façam isto, sempre que o beberem, em memória de mim.'"*
+
+**SIGNIFICADO:**
+
+**A. MEMORIAL:** Lembrança da morte de Cristo em nosso lugar
+
+Lucas 22:19: *"Façam isto em memória de mim."*
+
+**B. PROCLAMAÇÃO:** Anunciamos a morte do Senhor até que Ele volte
+
+1 Coríntios 11:26: *"Porque, sempre que comem este pão e bebem deste cálice, vocês proclamam a morte do Senhor até que ele venha."*
+
+**C. COMUNHÃO:** Comunhão (participação) no corpo e sangue de Cristo
+
+1 Coríntios 10:16: *"O cálice da bênção por que damos graças, porventura não é a comunhão do sangue de Cristo? E o pão que partimos, porventura não é a comunhão do corpo de Cristo?"*
+
+**D. ANTECIPAÇÃO:** Esperança na volta de Jesus
+
+1 Coríntios 11:26: *"Até que ele venha"*
+
+**QUEM PODE PARTICIPAR:**
+
+Na tradição batista reformada, a Ceia é para **membros batizados** da igreja local:
+
+1 Coríntios 11:27-28: *"Portanto, todo aquele que comer o pão ou beber do cálice do Senhor de forma indigna será culpado de pecar contra o corpo e o sangue do Senhor. Cada um deve examinar-se a si mesmo antes de comer do pão e beber do cálice."*
+
+**OBSERVAÇÃO:** Embora em algumas tradições a Ceia seja "aberta" (qualquer crente pode participar), muitas igrejas batistas praticam a **comunhão fechada** (apenas membros batizados daquela congregação participam). Ambas as práticas existem entre batistas reformados, mas a comunhão fechada é mais tradicional.
+
+**O QUE A CEIA DO SENHOR NÃO É:**
+
+- **Não é transubstanciação:** O pão e o vinho não se transformam literalmente no corpo e sangue de Cristo
+- **Não é consubstanciação:** Cristo não está fisicamente no pão e no vinho
+- **Não oferece salvação:** Não há graça salvadora transmitida através da Ceia
+- **Não é sacrifício:** Não repetimos o sacrifício de Cristo (foi completo, "uma vez por todas" - Hebreus 7:27; 9:26-28; 10:10)
+
+**TRANSFIGURAÇÃO CRISTÃ (Visão Batista Reformada):**
+
+A Ceia do Senhor é um **símbolo** que **representa** e **aponta para** a realidade espiritual:
+- O pão **representa** o corpo de Cristo
+- O vinho **representa** o sangue de Cristo
+- **Comemos e bebemos em fé**, apropriando-nos espiritualmente dos benefícios da morte de Cristo
+
+Batista não rejeitam a "realeza" espiritual da Ceia, mas a entendem como simbólico-memorial, não ontológico-transformador.
+
+#### 3. FREQUÊNCIA E PRÁTICA
+
+**BATISMO:**
+
+- **Uma vez** na vida do cristão (após confissão de fé)
+- **Por imersão** em água
+- **Voluntário** (decisão pessoal de obediência)
+- **Administrado** pela autoridade da igreja local
+
+**CEIA DO SENHOR:**
+
+- **Regularmente** na igreja (frequentemente aos domingos)
+- **Com pão e suco/vinho**
+- **Após exame de consciência**
+- **Em memória de Cristo**
+
+#### 4. A CEIA E O BATISMO NA GRANDE COMISSÃO
+
+Mateus 28:19-20 menciona ambos:
+
+*"...batizando-os em nome do Pai e do Filho e do Espírito Santo, **ensinando-os** a obedecer a tudo o que eu lhes ordenei."*
+
+**O batismo** é o primeiro ato de obediência pública após a conversão.
+
+**A Ceia** é a **obediência contínua** - praticamos regularmente em memória de Cristo.
+
+---
+
 ### PARTE 4: A GRANDE COMISSÃO - NOSSA MISSÃO!
 
 #### 1. O MANDAMENTO DE JESUS
@@ -6109,7 +6403,37 @@ _______________________________________________________________________________
 _______________________________________________________________________________
 
 
-**5. Escreva Mateus 28:19-20 (a Grande Comissão) com suas próprias palavras:**
+**5. Sobre o Batismo - responda:**
+
+**a) Quem deve ser batizado?**
+
+_______________________________________________________________________________
+
+**b) Por que é feito por imersão?**
+
+_______________________________________________________________________________
+
+**c) O batismo salva? Por quê?**
+
+_______________________________________________________________________________
+
+
+**6. Sobre a Ceia do Senhor - responda:**
+
+**a) O que ela representa?**
+
+_______________________________________________________________________________
+
+**b) Por que é importante?**
+
+_______________________________________________________________________________
+
+**c) Quem pode participar?**
+
+_______________________________________________________________________________
+
+
+**7. Escreva Mateus 28:19-20 (a Grande Comissão) com suas próprias palavras:**
 
 _______________________________________________________________________________
 
@@ -6120,7 +6444,7 @@ _______________________________________________________________________________
 _______________________________________________________________________________
 
 
-**6. Quais são os quatro "lugares" mencionados em Atos 1:8 onde devemos testemunhar?**
+**8. Quais são os quatro "lugares" mencionados em Atos 1:8 onde devemos testemunhar?**
 
 a) _____________________________________________________________________________
 
@@ -6131,7 +6455,7 @@ c) _____________________________________________________________________________
 d) _____________________________________________________________________________
 
 
-**7. APLICAÇÃO PESSOAL FINAL: Após concluir todo este estudo sobre "O QUE CREMOS", responda:**
+**9. APLICAÇÃO PESSOAL FINAL: Após concluir todo este estudo sobre "O QUE CREMOS", responda:**
 
 **a) Qual foi o aprendizado mais importante para você?**
 
